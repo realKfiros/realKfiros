@@ -61,9 +61,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** DERBY EUPHORIA BUT ALSO FULLY UNWELL<br />
+**Mood:** Derby delirium, full stress<br />
 **YNWA intensity:** 96%<br />
-**Take:** VVD IN STOPPAGE TIME TO WIN THE DERBY??? Captain. Colossus. Statue him NOW. Everton thought they had us and then BIG VIRG said “nope”. Inject that 2-1 forever. If this doesn’t kick us on, nothing will. UP THE REDS.
+**Take:** VVD popping up with a stoppage-time header to win the derby at Everton??? That’s my CAPTAIN. Build the statue yesterday. We can be absolute dross for 89 mins then turn into mentality monsters. Football heritage. Everton tears = sustenance.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
