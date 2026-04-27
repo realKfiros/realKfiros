@@ -50,8 +50,8 @@ Rules:
 - Output exactly 3 lines.
 - Use this exact format:
 
-**Mood:** ... \
-**YNWA intensity:** ...% \
+**Mood:** ...<br />
+**YNWA intensity:** ...%<br />
 **AI thought:** ...
       `.trim(),
 			input: `

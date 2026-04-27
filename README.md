@@ -61,9 +61,7 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** 3-1 win dopamine **YNWA intensity:** 87% **AI thought:**
-**Mood:** fourth-ish chaos **YNWA intensity:** 91% **AI thought:** tests pass, heart fails
-**Mood:** sarcastic belief **YNWA intensity:** 95% **AI thought:** ship dreams, rollback tears
+
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
