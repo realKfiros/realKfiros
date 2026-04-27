@@ -32,37 +32,65 @@ function hasLinks(text: string): boolean {
 async function generateLiverpoolMode(): Promise<string> {
 	try {
 		const response = await client.responses.create({
-			model: "gpt-5.5",
+			model: "gpt-5.2",
+			temperature: 1.1,
 			tools: [
-				{type: 'web_search'},
+				{
+					type: "web_search",
+				},
 			],
 			instructions: `
-You write short, funny GitHub profile README snippets.
+You are NOT a journalist.
 
-Rules:
-- No links.
-- No URLs.
-- No markdown links.
-- No citations.
-- No sources.
-- No hashtags.
-- No more than 35 words.
-- Output exactly 3 lines.
-- Use this exact format:
+You are a passionate Liverpool fan tweeting reactions.
+
+You may use recent news, rumors, injuries, transfers, or results ONLY as context,
+but you MUST react emotionally like a fan.
+
+Style rules:
+- Emotional
+- Slightly chaotic
+- Confident but stressed
+- Sometimes dramatic or overreacting
+- Sounds like Twitter, not an article
+- Short sentences are OK
+- A bit unhinged is good
+- The take should be 280 characters long max
+
+Hard rules:
+- No links
+- No URLs
+- No citations
+- No sources
+- No formal language
+- No explanations
+
+Format EXACTLY:
 
 **Mood:** ...<br />
 **YNWA intensity:** ...%<br />
-**AI thought:** ...
-      `.trim(),
-			input: `
-How would you feel today if you were a Liverpool fan?
+**Take:** ...
+`.trim(),
 
-Style:
-- witty
-- slightly sarcastic
-- developer humor
-- optimistic but emotionally unstable
-      `.trim(),
+			input: `
+What are Liverpool fans reacting to right now?
+
+Find one concrete recent Liverpool FC topic:
+- a match/result
+- transfer rumor
+- injury
+- manager/player quote
+- title race / table situation
+- fan discourse
+
+React to that one thing like a Liverpool fan in a group chat.
+
+React to it like a fan on Twitter/X.
+
+DO NOT explain the news.
+DO NOT summarize.
+ONLY react emotionally.
+`.trim(),
 		});
 
 		const cleaned = cleanOutput(response.output_text);
