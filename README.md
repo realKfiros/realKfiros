@@ -61,9 +61,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Derby delirium + lifelong cardiac issues<br />
+**Mood:** ILL. SICK. PARANOID.<br />
 **YNWA intensity:** 97%<br />
-**Take:** VVD popping up with a stoppage-time header to nick the derby is EXACTLY why he’s the captain. Everton thought they had us… and then BANG. Chaos. Limbs. Get in. Absolute thieves and I love it. City next? Bring it.
+**Take:** Salah going off injured after a 3-1 win and now everyone’s acting calm?? I’m not built for “wait for the scan” FC. If Mo misses the run-in we’re in the trenches. Wrap him in bubble wrap and ban hamstrings immediately.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
