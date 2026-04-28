@@ -61,9 +61,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** WE CAN’T HAVE NICE THINGS<br />
-**YNWA intensity:** 93%<br />
-**Take:** Another injury update and my head’s gone. Every time we build momentum, someone’s “a doubt” again. Slot’s gonna need a squad of 40 at this rate. Wrap the lads in bubble wrap and sage Anfield. I’m tired, boss.
+**Mood:** Derby delirium + lifelong cardiac issues<br />
+**YNWA intensity:** 97%<br />
+**Take:** VVD popping up with a stoppage-time header to nick the derby is EXACTLY why he’s the captain. Everton thought they had us… and then BANG. Chaos. Limbs. Get in. Absolute thieves and I love it. City next? Bring it.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
