@@ -61,9 +61,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** fuming but delusionally optimistic<br />
-**YNWA intensity:** 93%<br />
-**Take:** Alisson “tempted” by Juve??? Oh brilliant, because what we REALLY need is losing the best keeper on the planet while we’re already juggling injuries like a circus. Someone lock the AXA doors and hide his passport. Not today. Not ever.
+**Mood:** NOOOO not this. Proper head’s gone.<br />
+**YNWA intensity:** 97%<br />
+**Take:** The Salah “next club in days” chat has me sick. Sick!! If this is how it ends I’m gonna lose it. Build the statue, lock the gates, and tell every agent to stop speaking. We are not ready for post-Mo, I’m sorry.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
