@@ -61,9 +61,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** ILL. SICK. PARANOID.<br />
-**YNWA intensity:** 97%<br />
-**Take:** Salah going off injured after a 3-1 win and now everyone’s acting calm?? I’m not built for “wait for the scan” FC. If Mo misses the run-in we’re in the trenches. Wrap him in bubble wrap and ban hamstrings immediately.
+**Mood:** fuming but delusionally optimistic<br />
+**YNWA intensity:** 93%<br />
+**Take:** Alisson “tempted” by Juve??? Oh brilliant, because what we REALLY need is losing the best keeper on the planet while we’re already juggling injuries like a circus. Someone lock the AXA doors and hide his passport. Not today. Not ever.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
