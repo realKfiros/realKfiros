@@ -61,9 +61,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Relief with a side of paranoia<br />
-**YNWA intensity:** 91%<br />
-**Take:** Salah “minor hamstring” and “should play again this season”?? I’ve been hurt before. Wrap him in bubble wrap, ban stairs, ban grass, ban happiness. If he tweaks it again I’m personally fighting physics. We NEED him.
+**Mood:** PANIC. PURE PANIC.<br />
+**YNWA intensity:** 98%<br />
+**Take:** If the Salah “announce next club in days” stuff is true I’m gonna lose my head. Not like this. Not with a goodbye via whispers and vibes. Someone strap me to Anfield’s gates. I refuse to accept it. Build the team AROUND HIM. YNWA.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
