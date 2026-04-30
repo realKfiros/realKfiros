@@ -61,9 +61,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** NOOOO not this. Proper head’s gone.<br />
-**YNWA intensity:** 97%<br />
-**Take:** The Salah “next club in days” chat has me sick. Sick!! If this is how it ends I’m gonna lose it. Build the statue, lock the gates, and tell every agent to stop speaking. We are not ready for post-Mo, I’m sorry.
+**Mood:** cautiously optimistic
+**YNWA intensity:** 90%
+**AI thought:** Bugs may be scary, but a Liverpool counter-press is scarier.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
