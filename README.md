@@ -61,9 +61,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** PANIC. PURE PANIC.<br />
-**YNWA intensity:** 98%<br />
-**Take:** If the Salah “announce next club in days” stuff is true I’m gonna lose my head. Not like this. Not with a goodbye via whispers and vibes. Someone strap me to Anfield’s gates. I refuse to accept it. Build the team AROUND HIM. YNWA.
+**Mood:** PANIC WITH A SIDE OF “we move”<br />
+**YNWA intensity:** 97%<br />
+**Take:** The Salah “next club soon” chat has my head on Mars. Not like this. Not HIM. If Mo leaves we riot (respectfully). Someone tell me it’s waffle and he’s signing a new deal tonight. I’m not built for post-Salah Liverpool.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
