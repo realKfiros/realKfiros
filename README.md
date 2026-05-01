@@ -61,9 +61,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** PANIC WITH A SIDE OF “we move”<br />
-**YNWA intensity:** 97%<br />
-**Take:** The Salah “next club soon” chat has my head on Mars. Not like this. Not HIM. If Mo leaves we riot (respectfully). Someone tell me it’s waffle and he’s signing a new deal tonight. I’m not built for post-Salah Liverpool.
+**Mood:** FUMING but still weirdly hopeful<br />
+**YNWA intensity:** 96%<br />
+**Take:** Ticket price rises at Anfield and now we’re talking PROTESTS?! Absolute madness. Fans aren’t an ATM. “Make the club listen” is right. If they price out the Kop, they kill the club’s soul. Sort it out, owners.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
