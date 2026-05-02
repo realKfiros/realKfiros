@@ -61,9 +61,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Please be fine. PLEASE.<br />
-**YNWA intensity:** 92%<br />
-**Take:** Alisson “very close” to training and we’re all meant to act calm? I’m already refreshing like a maniac. Get him wrapped in bubble wrap, send him to Old Trafford in a tank, and tell the squad to STOP DROPPING LIKE FLIES.
+**Mood:** Head’s on Mars, heart’s in my throat<br />
+**YNWA intensity:** 94%<br />
+**Take:** Slot saying “we have to sell to buy” has me seeing red. We’re Liverpool, not a car boot sale. If we’re binning key lads to “fund” basics, we’re gambling with the whole project. Back him properly or don’t bother pretending we’re serious.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
