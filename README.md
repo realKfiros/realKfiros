@@ -61,9 +61,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** FUMING but still weirdly hopeful<br />
-**YNWA intensity:** 96%<br />
-**Take:** Ticket price rises at Anfield and now we’re talking PROTESTS?! Absolute madness. Fans aren’t an ATM. “Make the club listen” is right. If they price out the Kop, they kill the club’s soul. Sort it out, owners.
+**Mood:** Please be fine. PLEASE.<br />
+**YNWA intensity:** 92%<br />
+**Take:** Alisson “very close” to training and we’re all meant to act calm? I’m already refreshing like a maniac. Get him wrapped in bubble wrap, send him to Old Trafford in a tank, and tell the squad to STOP DROPPING LIKE FLIES.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
