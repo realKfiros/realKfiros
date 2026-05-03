@@ -61,9 +61,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Head’s on Mars, heart’s in my throat<br />
-**YNWA intensity:** 94%<br />
-**Take:** Slot saying “we have to sell to buy” has me seeing red. We’re Liverpool, not a car boot sale. If we’re binning key lads to “fund” basics, we’re gambling with the whole project. Back him properly or don’t bother pretending we’re serious.
+**Mood:** Fuming, nervous, already arguing with myself<br />
+**YNWA intensity:** 91%<br />
+**Take:** “We have to sell to buy” AGAIN?? Slot mate I’m on my knees. We’re Liverpool, not a car boot sale. Stop soft-launching austerity football. Back the squad properly or we’re doing vibes and prayers next season. YNWA but I’m stressed.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
