@@ -61,9 +61,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Fuming, nervous, already arguing with myself<br />
-**YNWA intensity:** 91%<br />
-**Take:** “We have to sell to buy” AGAIN?? Slot mate I’m on my knees. We’re Liverpool, not a car boot sale. Stop soft-launching austerity football. Back the squad properly or we’re doing vibes and prayers next season. YNWA but I’m stressed.
+**Mood:** ABSOLUTELY NOT. The Salah injury chatter has me pacing. <br />
+**YNWA intensity:** 96%<br />
+**Take:** If Mo’s hurt for any stretch we’re about to see the most unhinged “just play through it” discourse known to man. Wrap him in bubble wrap, ban training, lock him in Melwood 2.0. We’re not doing a farewell tour in crutches.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
