@@ -61,9 +61,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** ABSOLUTELY NOT. The Salah injury chatter has me pacing. <br />
+**Mood:** Fuming. Sick to my stomach.<br />
 **YNWA intensity:** 96%<br />
-**Take:** If Mo’s hurt for any stretch we’re about to see the most unhinged “just play through it” discourse known to man. Wrap him in bubble wrap, ban training, lock him in Melwood 2.0. We’re not doing a farewell tour in crutches.
+**Take:** Losing 3-2 at Old Trafford is bad enough but WHY do we always make it a soap opera?? Gift them momentum, gift them belief, gift them the headlines. I’m tired boss. Slot better have receipts next season because this one’s been stress on stress.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
