@@ -61,9 +61,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Fuming. Sick to my stomach.<br />
-**YNWA intensity:** 96%<br />
-**Take:** Losing 3-2 at Old Trafford is bad enough but WHY do we always make it a soap opera?? Gift them momentum, gift them belief, gift them the headlines. I’m tired boss. Slot better have receipts next season because this one’s been stress on stress.
+**Mood:** Fuming but somehow unsurprised<br />
+**YNWA intensity:** 93%<br />
+**Take:** Losing 3-2 at Old Trafford after dragging it back… and then STILL finding a way to lose it. Typical. I’m sick. Defending like it’s optional. That last punch to the gut is criminal. I need silence and a full rebuild in my head.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
