@@ -61,9 +61,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Fuming but somehow unsurprised<br />
-**YNWA intensity:** 93%<br />
-**Take:** Losing 3-2 at Old Trafford after dragging it back… and then STILL finding a way to lose it. Typical. I’m sick. Defending like it’s optional. That last punch to the gut is criminal. I need silence and a full rebuild in my head.
+**Mood:** Fuming. Shaky. Petty.<br />
+**YNWA intensity:** 97%<br />
+**Take:** If the Alisson leaving rumours are even HALF true I’m actually going to lose it. You don’t just “replace” the best keeper on the planet with vibes and a spreadsheet. Keep him. Pay him. Chain him to the Kop if you have to.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
