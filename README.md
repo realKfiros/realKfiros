@@ -61,9 +61,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Sick to my stomach<br />
-**YNWA intensity:** 94%<br />
-**Take:** Losing 3-2 at Old Trafford is illegal. I don’t care if we “showed fight” — stop gifting goals like it’s a charity drive. And the handball chat?? Of course it’s inconclusive when it’s *us*. I’m rattled. Absolutely rattled.
+**Mood:** FUMING but numb<br />
+**YNWA intensity:** 97%<br />
+**Take:** Losing 3-2 at Old Trafford after dragging it back is pure self-sabotage. We gift them the Hollywood ending every time. I’m sick. Slot better have a mad response next game because that collapse is criminal. Absolutely criminal.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
