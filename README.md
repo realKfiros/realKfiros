@@ -61,9 +61,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Still fuming<br />
-**YNWA intensity:** 91%<br />
-**Take:** Losing 3-2 at Old Trafford on May 3 and letting them run the vibes… I’m SICK. Every time we claw back, we gift them the plot again. I’m backing the lads but my head’s gone. Someone confiscate my phone before I tweet “rebuild” in caps.
+**Mood:** FUMING but trying to laugh it off<br />
+**YNWA intensity:** 92%<br />
+**Take:** That 3-2 at Old Trafford is gonna haunt me. We drag it back from 2-0 down then *still* find a way to gift them the storyline. I’m sick. Absolute chaosball. Someone lock the dressing room and play “mentality monsters” on loop.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
