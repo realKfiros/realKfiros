@@ -61,9 +61,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Fuming, embarrassed, still not over it<br />
-**YNWA intensity:** 91%<br />
-**Take:** Still sick about that 3-2 at Old Trafford. We literally giftwrapped them vibes, momentum, everything. Fightback just to lose anyway… classic emotional damage FC. I’m pacing like we’ve conceded again. Someone protect my headspace, please.
+**Mood:** Fuming but weirdly proud<br />
+**YNWA intensity:** 96%<br />
+**Take:** FSG actually U-turned on the ticket price rises after the protests and I’m like… GOOD. About time. Don’t touch matchgoing fans. Anfield isn’t a theme park. Yellow cards WORK. Now sort the rest out too before we riot again.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
