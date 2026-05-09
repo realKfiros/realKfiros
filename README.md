@@ -61,9 +61,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Fuming but weirdly proud<br />
+**Mood:** Fuming + paranoid<br />
 **YNWA intensity:** 96%<br />
-**Take:** FSG actually U-turned on the ticket price rises after the protests and I’m like… GOOD. About time. Don’t touch matchgoing fans. Anfield isn’t a theme park. Yellow cards WORK. Now sort the rest out too before we riot again.
+**Take:** The Salah “massive club looming” chat again??? I’m TIRED. Renew him, build him a statue, lock the contract in a vault. If Mo even *thinks* about leaving I’m muting football for a week. We are not doing this saga every window!!!
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
