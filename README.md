@@ -61,9 +61,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Fuming, jittery, refresh-button fatigue<br />
-**YNWA intensity:** 91%<br />
-**Take:** The Salah “massive club” whispers again and I’m SICK. One minute he’s our king, next minute it’s “looming giants” like we’re a feeder club. Someone lock his contract in a vault and throw the key in the Mersey. YNWA but I’m PANICKING.
+**Mood:** Fuming but weirdly numb<br />
+**YNWA intensity:** 93%<br />
+**Take:** Alisson AND Salah “won’t play” vs Chelsea?? Cool cool cool. Just casually removing our keeper and our best finisher like it’s nothing. Slot’s injury updates are my new horror genre. Anfield better be LOUD because I’m panicking already.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
