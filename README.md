@@ -61,9 +61,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Fuming + paranoid<br />
-**YNWA intensity:** 96%<br />
-**Take:** The Salah “massive club looming” chat again??? I’m TIRED. Renew him, build him a statue, lock the contract in a vault. If Mo even *thinks* about leaving I’m muting football for a week. We are not doing this saga every window!!!
+**Mood:** Fuming, jittery, refresh-button fatigue<br />
+**YNWA intensity:** 91%<br />
+**Take:** The Salah “massive club” whispers again and I’m SICK. One minute he’s our king, next minute it’s “looming giants” like we’re a feeder club. Someone lock his contract in a vault and throw the key in the Mersey. YNWA but I’m PANICKING.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
