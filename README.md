@@ -61,9 +61,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Fuming but weirdly numb<br />
+**Mood:** Fuming but weirdly not surprised<br />
 **YNWA intensity:** 93%<br />
-**Take:** Alisson AND Salah “won’t play” vs Chelsea?? Cool cool cool. Just casually removing our keeper and our best finisher like it’s nothing. Slot’s injury updates are my new horror genre. Anfield better be LOUD because I’m panicking already.
+**Take:** Still not over losing 3-2 at Old Trafford. We gift them the script EVERY time. Score twice and still bottle it? Heads gone. I’m tired of “nearly” moments. Win the chaos, stop being the chaos. Anfield better be vicious next game.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
