@@ -61,9 +61,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Head’s on Mars, heart’s in pieces<br />
-**YNWA intensity:** 94%<br />
-**Take:** Ekitike doing his Achilles is just evil footballing fate. Like genuinely what did we do to deserve this injury roulette. We can’t catch a break, ever. Someone wrap the entire squad in bubble wrap and sage Anfield, NOW.
+**Mood:** Fuming but smug<br />
+**YNWA intensity:** 92%<br />
+**Take:** Ticket price rise U-turn after protests? GOOD. Fans showed up and the club blinked. That’s what happens when you treat Anfield like a bank statement. Keep football for the people or we’ll kick off again. We move.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
