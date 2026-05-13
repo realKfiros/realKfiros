@@ -63,7 +63,7 @@ I am the real Kfiros, beware of fakes 😎
 <!-- LIVERPOOL_MODE:start -->
 **Mood:** Fuming but smug<br />
 **YNWA intensity:** 92%<br />
-**Take:** Ticket price rise U-turn after protests? GOOD. Fans showed up and the club blinked. That’s what happens when you treat Anfield like a bank statement. Keep football for the people or we’ll kick off again. We move.
+**Take:** FSG actually backed down on the ticket price rise after the protests?? Good. That’s what happens when Anfield says NO. Don’t try that again. We’re not a cash machine, we’re Liverpool. Fans 1, suits 0. YNWA.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
