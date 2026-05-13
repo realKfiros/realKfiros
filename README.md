@@ -61,9 +61,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Fuming but smug<br />
-**YNWA intensity:** 92%<br />
-**Take:** FSG actually backed down on the ticket price rise after the protests?? Good. That’s what happens when Anfield says NO. Don’t try that again. We’re not a cash machine, we’re Liverpool. Fans 1, suits 0. YNWA.
+**Mood:** Fuming, tired, refresh-button broken<br />
+**YNWA intensity:** 91%<br />
+**Take:** So now it’s “Slot u-turn” and “Xabi talks” season already?? I swear this club lives on chaos. Either back the manager properly or stop the leaks and the panic. I can’t do another summer of vibes, whispers, and rebuild hashtags.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
