@@ -61,9 +61,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Fuming, tired, refresh-button broken<br />
-**YNWA intensity:** 91%<br />
-**Take:** So now it’s “Slot u-turn” and “Xabi talks” season already?? I swear this club lives on chaos. Either back the manager properly or stop the leaks and the panic. I can’t do another summer of vibes, whispers, and rebuild hashtags.
+**Mood:** FOAMING. Injuries are running our season like it’s a cardio plan.<br />
+**YNWA intensity:** 92%<br />
+**Take:** Slot saying Salah + Alisson still out while we’re trying to scrap results… I’m TIRED. Every week it’s “back in training” and then “not ready”. Our physio room has more minutes than our bench. Please. One normal run of games. Just one.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
