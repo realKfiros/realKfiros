@@ -61,9 +61,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** FOAMING. Injuries are running our season like it’s a cardio plan.<br />
-**YNWA intensity:** 92%<br />
-**Take:** Slot saying Salah + Alisson still out while we’re trying to scrap results… I’m TIRED. Every week it’s “back in training” and then “not ready”. Our physio room has more minutes than our bench. Please. One normal run of games. Just one.
+**Mood:** PANIC + nostalgia<br />
+**YNWA intensity:** 96%<br />
+**Take:** This Slot “u-turn” + Xabi Alonso whispers have me spiralling. I love Slot but if the club’s already sniffing around XABI then what are we doing??? Pick a lane. My head’s gone. Bring Xabi home or back the gaffer—stop the limbo.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
