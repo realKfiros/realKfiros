@@ -61,9 +61,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** PANIC + nostalgia<br />
-**YNWA intensity:** 96%<br />
-**Take:** This Slot “u-turn” + Xabi Alonso whispers have me spiralling. I love Slot but if the club’s already sniffing around XABI then what are we doing??? Pick a lane. My head’s gone. Bring Xabi home or back the gaffer—stop the limbo.
+**Mood:** WE’RE SO BACK (but also why is everything on fire?)<br />
+**YNWA intensity:** 92%<br />
+**Take:** Harvey Elliott coming back for pre-season and I’m suddenly breathing again. Proper red. Proper graft. If we let him rot after all this chaos I’ll lose my head. Build around fighters, not vibes. Up the Reds.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
