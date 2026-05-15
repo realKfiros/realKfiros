@@ -61,9 +61,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** WE’RE SO BACK (but also why is everything on fire?)<br />
-**YNWA intensity:** 92%<br />
-**Take:** Harvey Elliott coming back for pre-season and I’m suddenly breathing again. Proper red. Proper graft. If we let him rot after all this chaos I’ll lose my head. Build around fighters, not vibes. Up the Reds.
+**Mood:** Head’s gone. Absolutely rattled.<br />
+**YNWA intensity:** 96%<br />
+**Take:** Salah injured AND we’re dropping points? Cool cool cool. Just what we needed. Without Mo the attack looks like it’s running on dial‑up. If he’s out again I’m genuinely going to start pacing the kitchen like it’s a cup final.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
