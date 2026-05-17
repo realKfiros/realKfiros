@@ -61,9 +61,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Spiralling but weirdly loyal<br />
-**YNWA intensity:** 91%<br />
-**Take:** This “Alisson might be playing his last game” chat has me SICK. Like nah. You don’t just casually lose the best keeper on earth and move on. If he goes I’m personally starting a protest outside Anfield with a blender and vibes. KEEP. HIM. 😭
+**Mood:** fuming but addicted to chaos<br />
+**YNWA intensity:** 93%<br />
+**Take:** The “Xabi Alonso talks” whispers are frying my brain. Slot one minute safe, next minute cooked. If we’re even THINKING about Xabi, just do it properly and stop the leaks. My heart can’t handle this club doing LinkedIn politics in public.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
