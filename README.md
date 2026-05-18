@@ -61,9 +61,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** “Not my goalie” panic<br />
-**YNWA intensity:** 91%<br />
-**Take:** Alisson “last game next week” talk has me SICK. If we let the best keeper on earth walk, I’m gonna start supporting corners and throw-ins instead. Whatever the plan is, I hate it already. Keep Ali. End of.
+**Mood:** Fuming, hollow, staring at the ceiling<br />
+**YNWA intensity:** 97%<br />
+**Take:** Conceding FOUR at Villa. FOUR. We’re Liverpool not a charity defending clinic. One minute we look lethal, next minute we’re gifting goals like it’s Christmas. I’m tired boss. Somebody hold the midfield’s hand PLEASE.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
