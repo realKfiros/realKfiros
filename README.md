@@ -61,9 +61,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Fuming but weirdly protective<br />
-**YNWA intensity:** 91%<br />
-**Take:** The “Mo vs Slot” nonsense is doing my head in. If anyone thinks we’re turning on Salah before we turn on whatever this chaos is, they’ve lost the plot. Stop briefing, stop sniping, win your games, and give the King respect.
+**Mood:** Fuming but oddly optimistic in a “this club will ruin me” way<br />
+**YNWA intensity:** 92%<br />
+**Take:** The Salah vs Slot noise is frying my head. Can we PLEASE not do the whole “civil war at Anfield” thing while we’re fighting for our lives? Give Mo his send-off, get the wins, sort the ego stuff after. I’m stressed.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
