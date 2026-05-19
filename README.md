@@ -61,9 +61,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Fuming but weirdly hopeful<br />
-**YNWA intensity:** 92%<br />
-**Take:** Slot saying Salah’s knock is “only minor” and he’ll get his Anfield send-off… THANK GOD. If Mo misses the last home game I’m uninstalling football. Give the King his flowers, give him the ball, and let Anfield roar the roof off.
+**Mood:** Fuming but weirdly protective<br />
+**YNWA intensity:** 91%<br />
+**Take:** The “Mo vs Slot” nonsense is doing my head in. If anyone thinks we’re turning on Salah before we turn on whatever this chaos is, they’ve lost the plot. Stop briefing, stop sniping, win your games, and give the King respect.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
