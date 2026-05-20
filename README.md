@@ -61,9 +61,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Fuming but oddly optimistic in a “this club will ruin me” way<br />
+**Mood:** FSG pls don’t do this to my heart<br />
 **YNWA intensity:** 92%<br />
-**Take:** The Salah vs Slot noise is frying my head. Can we PLEASE not do the whole “civil war at Anfield” thing while we’re fighting for our lives? Give Mo his send-off, get the wins, sort the ego stuff after. I’m stressed.
+**Take:** “Alisson might play his last game” talk has me SICK. Not like this. One minute we’re calm, next it’s “goodbye Ali” headlines. If we sell the best keeper on Earth and replace him with vibes I’m going to combust. KEEP HIM.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
