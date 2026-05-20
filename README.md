@@ -61,9 +61,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** FSG pls don’t do this to my heart<br />
-**YNWA intensity:** 92%<br />
-**Take:** “Alisson might play his last game” talk has me SICK. Not like this. One minute we’re calm, next it’s “goodbye Ali” headlines. If we sell the best keeper on Earth and replace him with vibes I’m going to combust. KEEP HIM.
+**Mood:** Fuming but also weirdly numb<br />
+**YNWA intensity:** 94%<br />
+**Take:** Mo “minor injury” being a RELIEF is where we’re at now?? Our entire season held together with Sellotape and vibes. Get him fit, give him the Anfield send-off he DESERVES, and for the love of God stop living one hamstring away from chaos.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
