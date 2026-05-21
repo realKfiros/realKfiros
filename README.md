@@ -61,9 +61,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Head in hands. F5 key in pieces.<br />
+**Mood:** FUMING but weirdly numb<br />
 **YNWA intensity:** 92%<br />
-**Take:** This “Slot sack decision” chatter has me SICK. Two bad weeks and everyone’s playing CEO. Either back the project or stop twerking for chaos. If we bin another manager and call it “ambition” I’m muting football forever (lying).
+**Take:** Arsenal lifting the league and we’re sat here doomscrolling “summer rebuild” threads like it’s a hobby. This club better come out of this window swinging. I’m not watching another season of “close but no cigar” misery. Sort it out.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
