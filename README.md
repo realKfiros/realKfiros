@@ -61,9 +61,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Fuming but also weirdly numb<br />
-**YNWA intensity:** 94%<br />
-**Take:** Mo “minor injury” being a RELIEF is where we’re at now?? Our entire season held together with Sellotape and vibes. Get him fit, give him the Anfield send-off he DESERVES, and for the love of God stop living one hamstring away from chaos.
+**Mood:** Head in hands. F5 key in pieces.<br />
+**YNWA intensity:** 92%<br />
+**Take:** This “Slot sack decision” chatter has me SICK. Two bad weeks and everyone’s playing CEO. Either back the project or stop twerking for chaos. If we bin another manager and call it “ambition” I’m muting football forever (lying).
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
