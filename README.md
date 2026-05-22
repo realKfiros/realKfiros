@@ -61,9 +61,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** FUMING but weirdly numb<br />
-**YNWA intensity:** 92%<br />
-**Take:** Arsenal lifting the league and we’re sat here doomscrolling “summer rebuild” threads like it’s a hobby. This club better come out of this window swinging. I’m not watching another season of “close but no cigar” misery. Sort it out.
+**Mood:** Fuming but deluded<br />
+**YNWA intensity:** 87%<br />
+**Take:** Boos at Anfield after a 1-1 with Chelsea… nah I’m sick. We’ve got a manager basically saying “I can’t win you back till transfers”??? Mate you can start by NOT serving up absolute nothing-ball at HOME. This club isn’t a rebuild charity. Sort it.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
