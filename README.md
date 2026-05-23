@@ -61,9 +61,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Fuming, but trying to laugh so I don’t scream<br />
-**YNWA intensity:** 92%<br />
-**Take:** Seeing “Arne Slot sack decision” trending and my head’s gone. We’re really doing end-of-season chaos AGAIN? Either back the man properly or pull the plaster off—this limbo is killing the vibes. I can’t take another summer of “major changes” fluff.
+**Mood:** Fuming but delusional<br />
+**YNWA intensity:** 91%<br />
+**Take:** So we’re actually talking about a Mo Salah “outburst” and him getting DROPPED for an Anfield farewell??? Nah. Sort it out. You don’t bin the legend on his send-off. If this is how we treat icons, what are we even doing??? YNWA but I’m stressed.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
