@@ -61,9 +61,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Fuming but delusional<br />
-**YNWA intensity:** 91%<br />
-**Take:** So we’re actually talking about a Mo Salah “outburst” and him getting DROPPED for an Anfield farewell??? Nah. Sort it out. You don’t bin the legend on his send-off. If this is how we treat icons, what are we even doing??? YNWA but I’m stressed.
+**Mood:** Fuming but sentimental<br />
+**YNWA intensity:** 96%<br />
+**Take:** If Mo Salah’s really doing the “heavy metal” goodbye tour while Slot’s catching strays… I’m not ready. Give him a proper Anfield send-off, no petty dropping, no drama. One last time: ball to feet, chaos, and we SING. YNWA.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
