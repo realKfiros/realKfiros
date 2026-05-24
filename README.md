@@ -61,9 +61,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Fuming but sentimental<br />
-**YNWA intensity:** 96%<br />
-**Take:** If Mo Salah’s really doing the “heavy metal” goodbye tour while Slot’s catching strays… I’m not ready. Give him a proper Anfield send-off, no petty dropping, no drama. One last time: ball to feet, chaos, and we SING. YNWA.
+**Mood:** FUMING but weirdly hopeful<br />
+**YNWA intensity:** 92%<br />
+**Take:** Slot saying Mo’s injury is “minor” and he “deserves a big send-off”?? No no no. Wrap Salah in bubble wrap, escort him to Anfield like he’s the Crown Jewels, and let him cook one last time. I’m not emotionally stable for this.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
