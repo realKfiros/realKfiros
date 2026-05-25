@@ -61,9 +61,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** PANIC BUT COPING<br />
+**Mood:** Head’s on Mars. Heart’s in bits.<br />
 **YNWA intensity:** 92%<br />
-**Take:** Alisson “set to be in training” again and I’m supposed to be calm??? We’ve been living in chaos mode for MONTHS. If he’s back, the season might still have a pulse. If it’s another “almost ready” I’m launching my phone into the Mersey.
+**Take:** Alisson “advanced negotiations to leave”?? EXCUSE ME?? We’re really doing this now?? After everything?? If we sell Ali I’m chaining myself to the AXA gates. I refuse to be calm. Someone tell the ITKs to log off before I combust.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
