@@ -61,9 +61,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Sick to my stomach<br />
-**YNWA intensity:** 94%<br />
-**Take:** Alisson AND Isak “back in training” ahead of Brentford and I’m supposed to be calm??? One more “minor fitness concern” and I’m filing a missing persons report. Just get them on the pitch and stop teasing me, I’m on my knees here.
+**Mood:** PANIC BUT COPING<br />
+**YNWA intensity:** 92%<br />
+**Take:** Alisson “set to be in training” again and I’m supposed to be calm??? We’ve been living in chaos mode for MONTHS. If he’s back, the season might still have a pulse. If it’s another “almost ready” I’m launching my phone into the Mersey.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
