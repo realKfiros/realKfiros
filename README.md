@@ -61,9 +61,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Sick to my stomach but trying to laugh through it<br />
+**Mood:** Sick to my stomach<br />
 **YNWA intensity:** 91%<br />
-**Take:** 1-1 with Brentford AND we’re doing “farewell” vibes for Salah + Robbo?? Nah I’m not alright. Feels like someone’s unplugged the club. Give me one bit of good news this summer or I’m gonna start arguing with clouds.
+**Take:** Alisson “back in training” and suddenly my brain’s doing highlight reels AND panic attacks. If he rushes it and pops the hammy again I’m going to lose my mind. Please just be fit, big man. We are NOT doing chaos keeper season again.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
