@@ -61,9 +61,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Head’s on Mars. Heart’s in bits.<br />
-**YNWA intensity:** 92%<br />
-**Take:** Alisson “advanced negotiations to leave”?? EXCUSE ME?? We’re really doing this now?? After everything?? If we sell Ali I’m chaining myself to the AXA gates. I refuse to be calm. Someone tell the ITKs to log off before I combust.
+**Mood:** Sick to my stomach but trying to laugh through it<br />
+**YNWA intensity:** 91%<br />
+**Take:** 1-1 with Brentford AND we’re doing “farewell” vibes for Salah + Robbo?? Nah I’m not alright. Feels like someone’s unplugged the club. Give me one bit of good news this summer or I’m gonna start arguing with clouds.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
