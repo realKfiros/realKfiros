@@ -62,8 +62,8 @@ I am the real Kfiros, beware of fakes 😎
 
 <!-- LIVERPOOL_MODE:start -->
 **Mood:** Sick to my stomach<br />
-**YNWA intensity:** 91%<br />
-**Take:** Alisson “back in training” and suddenly my brain’s doing highlight reels AND panic attacks. If he rushes it and pops the hammy again I’m going to lose my mind. Please just be fit, big man. We are NOT doing chaos keeper season again.
+**YNWA intensity:** 97%<br />
+**Take:** Salah and Robbo getting an Anfield “goodbye” after a 1-1 with Brentford?? I’m not okay. That roar deserved a WIN. If that’s really the end, football is cruel. Build the statue, burn the scriptwriters. YNWA.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
