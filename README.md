@@ -61,9 +61,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Sick to my stomach<br />
-**YNWA intensity:** 97%<br />
-**Take:** Salah and Robbo getting an Anfield “goodbye” after a 1-1 with Brentford?? I’m not okay. That roar deserved a WIN. If that’s really the end, football is cruel. Build the statue, burn the scriptwriters. YNWA.
+**Mood:** Fuming but weirdly emotional<br />
+**YNWA intensity:** 92%<br />
+**Take:** 1-1 vs Brentford as the “send-off” and we’re apparently waving goodbye to Salah AND Robbo??? My head’s on Mars. End of an era vibes and we’re sat here like “nice one lads.” Slot better have the maddest summer cooking or we are FINISHED.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
