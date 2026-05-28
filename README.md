@@ -61,9 +61,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Somebody confiscate every journalist’s phone before they start Alisson-to-Juve again<br />
-**YNWA intensity:** 94%<br />
-**Take:** Alisson “saga” to Juventus?! Absolutely not. Hands off our keeper. We’re not doing the summer where we sell the spine and call it “rebuild” while everyone else levels up. Keep Ali. Spend proper. Stop the chaos.
+**Mood:** FSG PLEASE DON’T DO THIS<br />
+**YNWA intensity:** 93%<br />
+**Take:** The “Salah on his way out” chat has me SICK. If we let the best winger in the league walk and replace him with a vibes signing + a PowerPoint, I’m going to lose my head. Give the man his send-off AND a contract. NOW.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
