@@ -61,9 +61,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Fuming but weirdly emotional<br />
-**YNWA intensity:** 92%<br />
-**Take:** 1-1 vs Brentford as the “send-off” and we’re apparently waving goodbye to Salah AND Robbo??? My head’s on Mars. End of an era vibes and we’re sat here like “nice one lads.” Slot better have the maddest summer cooking or we are FINISHED.
+**Mood:** Somebody confiscate every journalist’s phone before they start Alisson-to-Juve again<br />
+**YNWA intensity:** 94%<br />
+**Take:** Alisson “saga” to Juventus?! Absolutely not. Hands off our keeper. We’re not doing the summer where we sell the spine and call it “rebuild” while everyone else levels up. Keep Ali. Spend proper. Stop the chaos.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
