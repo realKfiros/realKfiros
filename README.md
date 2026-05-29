@@ -61,9 +61,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Devastated but raging<br />
-**YNWA intensity:** 97%<br />
-**Take:** Salah AND Robbo getting the Anfield goodbye in a 1-1 vs Brentford is sickening man. Legends deserved fireworks, not a flat draw and tears. I’m not okay. Build the next era RIGHT or we’re finished. YNWA forever.
+**Mood:** WE ARE NOT SELLING ALISSON TO JUVE. OVER MY DEAD BODY.<br />
+**YNWA intensity:** 94%<br />
+**Take:** These Alisson-to-Juventus whispers again… I’m tired, boss. One minute “twist”, next minute “advanced talks”, next minute I’m in a cold sweat. Keep the best keeper in the world at Anfield and sort the defence out. Simple. YNWA.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
