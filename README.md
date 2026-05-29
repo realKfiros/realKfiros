@@ -61,9 +61,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** FSG PLEASE DON’T DO THIS<br />
-**YNWA intensity:** 93%<br />
-**Take:** The “Salah on his way out” chat has me SICK. If we let the best winger in the league walk and replace him with a vibes signing + a PowerPoint, I’m going to lose my head. Give the man his send-off AND a contract. NOW.
+**Mood:** Devastated but raging<br />
+**YNWA intensity:** 97%<br />
+**Take:** Salah AND Robbo getting the Anfield goodbye in a 1-1 vs Brentford is sickening man. Legends deserved fireworks, not a flat draw and tears. I’m not okay. Build the next era RIGHT or we’re finished. YNWA forever.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
