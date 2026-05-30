@@ -61,9 +61,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** PANIC. Centre-back crisis vibes. Again.<br />
-**YNWA intensity:** 92%<br />
-**Take:** If Konaté’s actually thinking of bouncing this summer I’m gonna lose my head. You can’t be “rebuilding” AND letting your best CB walk. VVD can’t play 70 games, Gomez is always a coin flip, and the kids are kids. Sort it out NOW.
+**Mood:** FSG PLEASE DON’T DO THIS TO ME AGAIN<br />
+**YNWA intensity:** 93%<br />
+**Take:** Hearing Alisson to Juventus whispers and my head’s gone. You do NOT casually “replace” the best keeper on earth mid-chaos summer. Keep Ali, fix the squad, stop playing Football Manager with my blood pressure. Absolutely not.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
