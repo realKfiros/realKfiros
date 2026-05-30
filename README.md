@@ -61,9 +61,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** WE ARE NOT SELLING ALISSON TO JUVE. OVER MY DEAD BODY.<br />
-**YNWA intensity:** 94%<br />
-**Take:** These Alisson-to-Juventus whispers again… I’m tired, boss. One minute “twist”, next minute “advanced talks”, next minute I’m in a cold sweat. Keep the best keeper in the world at Anfield and sort the defence out. Simple. YNWA.
+**Mood:** PANIC. Centre-back crisis vibes. Again.<br />
+**YNWA intensity:** 92%<br />
+**Take:** If Konaté’s actually thinking of bouncing this summer I’m gonna lose my head. You can’t be “rebuilding” AND letting your best CB walk. VVD can’t play 70 games, Gomez is always a coin flip, and the kids are kids. Sort it out NOW.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
