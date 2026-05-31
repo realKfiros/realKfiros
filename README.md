@@ -61,9 +61,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** FSG PLEASE DON’T DO THIS TO ME AGAIN<br />
-**YNWA intensity:** 93%<br />
-**Take:** Hearing Alisson to Juventus whispers and my head’s gone. You do NOT casually “replace” the best keeper on earth mid-chaos summer. Keep Ali, fix the squad, stop playing Football Manager with my blood pressure. Absolutely not.
+**Mood:** Head’s on Mars. Heart’s in bits.<br />
+**YNWA intensity:** 96%<br />
+**Take:** Andy Robbo talking about Jota’s death has absolutely floored me. Forget football for a sec. That’s family. That’s pain you can’t “bounce back” from. Protect the lads, back the lads, love the lads. YNWA isn’t a slogan. It’s this.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
