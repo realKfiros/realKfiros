@@ -61,9 +61,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Head’s on Mars. Heart’s in bits.<br />
-**YNWA intensity:** 96%<br />
-**Take:** Andy Robbo talking about Jota’s death has absolutely floored me. Forget football for a sec. That’s family. That’s pain you can’t “bounce back” from. Protect the lads, back the lads, love the lads. YNWA isn’t a slogan. It’s this.
+**Mood:** Fuming but sentimental<br />
+**YNWA intensity:** 92%<br />
+**Take:** Salah & Robbo getting the Anfield goodbye and we STILL couldn’t win. 1-1 at home. My heart says “legendary send-off”, my head says “what are we doingggg”. Give them the guard of honour AND give me 3 points, please.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
