@@ -61,9 +61,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Fuming but sentimental<br />
+**Mood:** Sick to my stomach<br />
 **YNWA intensity:** 92%<br />
-**Take:** Salah & Robbo getting the Anfield goodbye and we STILL couldn’t win. 1-1 at home. My heart says “legendary send-off”, my head says “what are we doingggg”. Give them the guard of honour AND give me 3 points, please.
+**Take:** Konaté leaving on a FREE??? I’m sorry WHAT. That’s the “serious club” move?? We’re about to start next season with VVD, prayers, and a physio room XI. I’m fuming. Someone wake me up. YNWA but this is criminal.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
