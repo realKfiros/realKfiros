@@ -61,9 +61,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Sick to my stomach<br />
-**YNWA intensity:** 92%<br />
-**Take:** Konaté leaving on a FREE??? I’m sorry WHAT. That’s the “serious club” move?? We’re about to start next season with VVD, prayers, and a physio room XI. I’m fuming. Someone wake me up. YNWA but this is criminal.
+**Mood:** HEAD IS GONE<br />
+**YNWA intensity:** 96%<br />
+**Take:** Arne Slot sacked and now Konaté “not renewing” whispers?? So we’re speedrunning a rebuild while everyone circles our lads like sharks. Absolute chaos. Somebody hug Virgil and open the chequebook before I start tweeting in ALL CAPS.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
