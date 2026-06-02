@@ -61,9 +61,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** HEAD IS GONE<br />
-**YNWA intensity:** 96%<br />
-**Take:** Arne Slot sacked and now Konaté “not renewing” whispers?? So we’re speedrunning a rebuild while everyone circles our lads like sharks. Absolute chaos. Somebody hug Virgil and open the chequebook before I start tweeting in ALL CAPS.
+**Mood:** Fuming, devastated, spiralling<br />
+**YNWA intensity:** 99%<br />
+**Take:** Ibou “goodbye” posts??? Nah man. Not Konaté too. We can’t be doing summer exits like it’s a clearance sale. Replace him with WHO? A spreadsheet? Get the contract out, get the pen out, lock it down. I’m sick.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
