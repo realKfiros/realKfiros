@@ -61,9 +61,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Fuming. Numb. Also weirdly resigned.<br />
+**Mood:** FUMING. Betrayed. Borderline numb.<br />
 **YNWA intensity:** 97%<br />
-**Take:** Slot getting SACKED on May 30 is actually insane. From title winners to chaos in a year. Who’s running this club, honestly?? Now we’re gonna spend all summer doing “rebuild” tweets while everyone else cooks. I’m tired, lads. YNWA.
+**Take:** Konaté edging to REAL MADRID?! I’m sorry but why are we letting everyone stroll out for free/cheap like it’s a charity shop. Build a spine and it gets shipped to Spain. Absolute headloss. Get the deal DONE or replace him yesterday. YNWA but I’m SICK.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
