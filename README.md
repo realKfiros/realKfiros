@@ -61,9 +61,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** WE’RE RUNNING ON PURE VIBES AND PANIC<br />
-**YNWA intensity:** 93%<br />
-**Take:** Iraola “two-year deal” chatter has me SICK with nerves but weirdly buzzing??? New era, new press, new plans… PLEASE just don’t turn this into another “we tried” summer. Announce it, back him, and let’s COOK. YNWA.
+**Mood:** Fuming, spiralling, refresh-button broken<br />
+**YNWA intensity:** 97%<br />
+**Take:** “Opened talks with Andoni Iraola” while Slot’s still there??? So we’re doing a manager carousel AND a “sell-to-buy” summer at the same time? This club lives on chaos. Either back the gaffer or bin him, but stop the limbo. I’m tired. YNWA.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
