@@ -61,9 +61,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Konaté rumours have me pacing like it’s deadline day<br />
-**YNWA intensity:** 96%<br />
-**Take:** If Ibou Konaté is “edging closer” to Madrid I’m actually gonna lose it. Not OUR best CB strolling out the door like it’s nothing. Pay the man, lock him up, throw the keys in the Mersey. I can’t do another summer of pain.
+**Mood:** F5 season. Heart rate 200. We’re actually doing this.<br />
+**YNWA intensity:** 92%<br />
+**Take:** So the Iraola-to-Liverpool noise is back and my head’s gone. If we sack Slot and end up with a “project” I’m screaming. But also… his press could be filthy at Anfield. I hate that I’m intrigued. Edwards don’t you dare miss.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
