@@ -61,9 +61,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** F5 season. Heart rate 200. We’re actually doing this.<br />
+**Mood:** Screaming into a pillow<br />
 **YNWA intensity:** 92%<br />
-**Take:** So the Iraola-to-Liverpool noise is back and my head’s gone. If we sack Slot and end up with a “project” I’m screaming. But also… his press could be filthy at Anfield. I hate that I’m intrigued. Edwards don’t you dare miss.
+**Take:** Iraola saying “I want to become one of you” mate I’m already IN TOO DEEP. Win games, press like mad, make Anfield feral again and I’ll build the statue myself. But if this is another “project” with no signings I’m going to combust.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
