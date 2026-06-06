@@ -61,9 +61,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Screaming into a pillow<br />
+**Mood:** F5 merchant. Nervous laugh. Full meltdown pending.<br />
 **YNWA intensity:** 92%<br />
-**Take:** Iraola saying “I want to become one of you” mate I’m already IN TOO DEEP. Win games, press like mad, make Anfield feral again and I’ll build the statue myself. But if this is another “project” with no signings I’m going to combust.
+**Take:** Iraola “set to join” Liverpool… again. I’ve seen this movie 12 times this week. Either announce it or free my family. If we land him, we’re cooking. If not, I’m tweeting in ALL CAPS until August.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
