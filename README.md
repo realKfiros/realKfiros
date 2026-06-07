@@ -61,9 +61,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Fuming but weirdly hopeful<br />
-**YNWA intensity:** 92%<br />
-**Take:** Konaté leaving on a FREE?? Nahhh that’s criminal. We’re really out here rebuilding AND bleeding leaders at the back. Someone lock the contract drawer and throw the key in the Mersey. Iraola better be cooking something outrageous because I’m STRESSED.
+**Mood:** WHAT HAVE WE DONE 😭<br />
+**YNWA intensity:** 97%<br />
+**Take:** Iraola in as boss and I’m already oscillating between “tactical genius pressing monster” and “we’ve panic-hired Guardiola from Wish.” Back him? Absolutely. Am I terrified? Also absolutely. Pre-season can’t come quick enough.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
