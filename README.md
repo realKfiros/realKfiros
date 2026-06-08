@@ -61,9 +61,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** WHAT HAVE WE DONE 😭<br />
-**YNWA intensity:** 97%<br />
-**Take:** Iraola in as boss and I’m already oscillating between “tactical genius pressing monster” and “we’ve panic-hired Guardiola from Wish.” Back him? Absolutely. Am I terrified? Also absolutely. Pre-season can’t come quick enough.
+**Mood:** Shaky. Suspiciously hopeful. Absolutely not calm.<br />
+**YNWA intensity:** 92%<br />
+**Take:** Iraola in at Liverpool and I’m already seeing “short contract” chatter… lads I can’t do another era of vibes and LinkedIn tactics. Either he’s the second coming or we’re cooking in 6th. Back him, sign 3 monsters, win everything. Simple.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
