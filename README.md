@@ -61,9 +61,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Shaky. Suspiciously hopeful. Absolutely not calm.<br />
-**YNWA intensity:** 92%<br />
-**Take:** Iraola in at Liverpool and I’m already seeing “short contract” chatter… lads I can’t do another era of vibes and LinkedIn tactics. Either he’s the second coming or we’re cooking in 6th. Back him, sign 3 monsters, win everything. Simple.
+**Mood:** FUMING but weirdly hopeful<br />
+**YNWA intensity:** 93%<br />
+**Take:** Conor Bradley’s injury being “worse than expected” is sending me. HOW are we always one knock away from chaos at RB? Iraola better be on the phone 24/7. I love Bradley but my blood pressure can’t do another season of patched-up fullbacks.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
