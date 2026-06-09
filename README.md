@@ -61,9 +61,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Fuming but weirdly hopeful<br />
-**YNWA intensity:** 91%<br />
-**Take:** Konaté to Real Madrid chat again??? I’m SICK. You don’t “edge closer” to Madrid, you either sign the deal or sign the extension. If we let another monster CB walk and replace him with vibes I’m gonna lose it. PAY THE MAN. NOW.
+**Mood:** Refreshing “here we go” merchants + checking injury updates like it’s the stock market<br />
+**YNWA intensity:** 86%<br />
+**Take:** Salah “set to return” and I’m meant to be calm?? That’s not a player, that’s CPR for our season. Get him wrapped in bubble wrap and rolled out ONLY when it’s time. If he tweaks it again I’m uninstalling football.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
