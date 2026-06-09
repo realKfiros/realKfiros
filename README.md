@@ -61,9 +61,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** FUMING but weirdly hopeful<br />
-**YNWA intensity:** 93%<br />
-**Take:** Conor Bradley’s injury being “worse than expected” is sending me. HOW are we always one knock away from chaos at RB? Iraola better be on the phone 24/7. I love Bradley but my blood pressure can’t do another season of patched-up fullbacks.
+**Mood:** Fuming but weirdly hopeful<br />
+**YNWA intensity:** 91%<br />
+**Take:** Konaté to Real Madrid chat again??? I’m SICK. You don’t “edge closer” to Madrid, you either sign the deal or sign the extension. If we let another monster CB walk and replace him with vibes I’m gonna lose it. PAY THE MAN. NOW.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
