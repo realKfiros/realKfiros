@@ -61,9 +61,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Refreshing “here we go” merchants + checking injury updates like it’s the stock market<br />
-**YNWA intensity:** 86%<br />
-**Take:** Salah “set to return” and I’m meant to be calm?? That’s not a player, that’s CPR for our season. Get him wrapped in bubble wrap and rolled out ONLY when it’s time. If he tweaks it again I’m uninstalling football.
+**Mood:** F5 key broken, head on Mars<br />
+**YNWA intensity:** 92%<br />
+**Take:** Another day, another “Gakpo exit / Chiesa exit / Núñez return” transfer soup. I’m tired, boss. Either announce someone REAL or stop edging the fanbase. We’re Liverpool, not a football-themed soap opera. Deadline day me NOW.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
