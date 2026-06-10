@@ -61,9 +61,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** F5 key broken, head on Mars<br />
+**Mood:** Fuming but coping<br />
 **YNWA intensity:** 92%<br />
-**Take:** Another day, another “Gakpo exit / Chiesa exit / Núñez return” transfer soup. I’m tired, boss. Either announce someone REAL or stop edging the fanbase. We’re Liverpool, not a football-themed soap opera. Deadline day me NOW.
+**Take:** Konaté to Madrid chats again??? I’m SICK. We can’t keep donating our best lads to Europe like it’s charity. Pay the man or replace him TODAY. Iraola mate you’ve not even unpacked and the backline’s on fire. Absolute headache.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
