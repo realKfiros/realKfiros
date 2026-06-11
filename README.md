@@ -61,9 +61,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** F5 key in the mud, head on Mars<br />
-**YNWA intensity:** 94%<br />
-**Take:** This Yan Diomande saga is already giving “drag on all summer then panic on deadline day” vibes. Get it DONE or move on. I beg. I can’t do another window of “monitoring” while rivals actually sign players. Iraola needs bodies NOW.
+**Mood:** F5 key in pieces<br />
+**YNWA intensity:** 92%<br />
+**Take:** Sky saying we’ve “approached” Leipzig for Yan Diomande and PSG are sniffing around… oh fantastic, another summer of “positive talks” while everyone else just signs the player. Pay up, wrap it up, get him in. I’m tired, boss.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
