@@ -61,9 +61,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Fuming but coping<br />
-**YNWA intensity:** 92%<br />
-**Take:** Konaté to Madrid chats again??? I’m SICK. We can’t keep donating our best lads to Europe like it’s charity. Pay the man or replace him TODAY. Iraola mate you’ve not even unpacked and the backline’s on fire. Absolute headache.
+**Mood:** F5 key in the mud, head on Mars<br />
+**YNWA intensity:** 94%<br />
+**Take:** This Yan Diomande saga is already giving “drag on all summer then panic on deadline day” vibes. Get it DONE or move on. I beg. I can’t do another window of “monitoring” while rivals actually sign players. Iraola needs bodies NOW.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
