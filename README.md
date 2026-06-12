@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** PANIC WITH A SIDE OF DELUSION<br />
-**YNWA intensity:** 94%<br />
-**Take:** Conor Bradley injury talk has me SICK. We can’t go into a new era with a right-back crisis AGAIN. Iraola’s gonna need a tactical miracle and a signing yesterday. I’m already arguing with strangers in my head. Fix it, Liverpool.
+**Mood:** FUMING but weirdly hopeful<br />
+**YNWA intensity:** 92%<br />
+**Take:** Konaté edging to Madrid on a free is pure pain. Absolute daylight robbery. How are we letting that happen AGAIN?? Get the replacements in yesterday and stop playing “calm” in the market before we’re defending with vibes in August.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
