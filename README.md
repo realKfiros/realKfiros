@@ -42,7 +42,9 @@ I am the real Kfiros, beware of fakes 😎
 
 ![Kfir's GitHub stats](https://github-readme-stats.vercel.app/api?username=realKfiros&show_icons=true&theme=radical)
 
-![Kfir's github activity graph](https://github-readme-activity-graph.vercel.app/graph?username=realKfiros&theme=react-dark)
+[![GitHub Streak](https://streak-stats.demolab.com?user=realKfiros&theme=radical)](https://git.io/streak-stats)
+
+![Kfir's github activity graph](https://github-readme-activity-graph.vercel.app/graph?username=realKfiros&theme=radical&radius=4.5)
 
 ---
 
