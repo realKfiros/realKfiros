@@ -61,9 +61,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** F5 key in pieces<br />
-**YNWA intensity:** 92%<br />
-**Take:** Sky saying we’ve “approached” Leipzig for Yan Diomande and PSG are sniffing around… oh fantastic, another summer of “positive talks” while everyone else just signs the player. Pay up, wrap it up, get him in. I’m tired, boss.
+**Mood:** PANIC WITH A SIDE OF DELUSION<br />
+**YNWA intensity:** 94%<br />
+**Take:** Conor Bradley injury talk has me SICK. We can’t go into a new era with a right-back crisis AGAIN. Iraola’s gonna need a tactical miracle and a signing yesterday. I’m already arguing with strangers in my head. Fix it, Liverpool.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
