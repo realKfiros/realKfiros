@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** FUMING but weirdly hopeful<br />
-**YNWA intensity:** 92%<br />
-**Take:** Konaté edging to Madrid on a free is pure pain. Absolute daylight robbery. How are we letting that happen AGAIN?? Get the replacements in yesterday and stop playing “calm” in the market before we’re defending with vibes in August.
+**Mood:** Refreshing Sky Sports like it’s oxygen<br />
+**YNWA intensity:** 91%<br />
+**Take:** Sky saying we’ve approached Leipzig for Yan Diomande and PSG are sniffing around… here we go again. PAY THE MONEY and get it done before it turns into a 6-week “monitoring” saga. Iraola needs bodies NOW. I’m already tired.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
