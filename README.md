@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** F5 key in pieces, head in hands<br />
-**YNWA intensity:** 92%<br />
-**Take:** Konaté to Real Madrid talk again?? I’m SICK. Not in a “fair play” way, in a “someone confiscate Madrid’s phone” way. Keep our centre-half’s name out your mouth and sign the contract NOW before I lose it. YNWA but I’m spiralling.
+**Mood:** Panicking in HD<br />
+**YNWA intensity:** 87%<br />
+**Take:** Prioritising a right-back after the Conor Bradley injury??? Cool cool cool. So we’re just doing “vibes and prayers” defending for another season then. Get it DONE early or I’m going to start tweeting at clouds. YNWA but I’m stressed.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
