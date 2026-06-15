@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** fuming but delusionally optimistic<br />
-**YNWA intensity:** 94%<br />
-**Take:** Conor Bradley injured and now we’re “prioritising a right-back” like it’s some cute little shopping list. GET IT DONE. I can’t do another season of emergency fixes and vibes. Bradley’s class, but we need depth that actually exists.
+**Mood:** Refreshing Twitter like it’s a life support machine<br />
+**YNWA intensity:** 93%<br />
+**Take:** The Iraola era hasn’t even properly started and we’re already “losing out” on targets and getting transfer “blows” every 6 hours. I swear rival fans get signings, we get PowerPoints and pain. JUST BACK THE GAFFER AND COOK, PLEASE.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
