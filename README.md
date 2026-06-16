@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** F5 button in bits, head in hands<br />
+**Mood:** Refreshing timelines like it’s a full-time job<br />
 **YNWA intensity:** 92%<br />
-**Take:** So we’re really doing the “wonderkid said NO to Liverpool” thing in June? Cool. Love that. Absolute transfer window trauma already and it’s not even warmed up. Get Iraola the players NOW or I’m starting a conspiracy board.
+**Take:** This Yan Diomande saga is already doing my head in. “Wait till after the World Cup”?? Cool, so we just sit here vibrating with stress while PSG lurk. Pay the man, get it done, I beg. I can’t do another summer of edging.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
