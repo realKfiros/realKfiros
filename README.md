@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** F5 season madness. I’m vibrating.<br />
-**YNWA intensity:** 91%<br />
-**Take:** Us “in contact” to hijack Arsenal for Bouaddi?? DO IT. I don’t want “monitoring” and “admiring”. I want a HERE WE GO before breakfast. Iraola needs legs + brains in midfield, not another summer of vibes and missed targets. MOVE.
+**Mood:** F5 button in bits, head in hands<br />
+**YNWA intensity:** 92%<br />
+**Take:** So we’re really doing the “wonderkid said NO to Liverpool” thing in June? Cool. Love that. Absolute transfer window trauma already and it’s not even warmed up. Get Iraola the players NOW or I’m starting a conspiracy board.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
