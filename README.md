@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Refreshing timelines like it’s a full-time job<br />
-**YNWA intensity:** 92%<br />
-**Take:** This Yan Diomande saga is already doing my head in. “Wait till after the World Cup”?? Cool, so we just sit here vibrating with stress while PSG lurk. Pay the man, get it done, I beg. I can’t do another summer of edging.
+**Mood:** F5 button in pieces. Head’s gone.<br />
+**YNWA intensity:** 91%<br />
+**Take:** So we’re “ready to offer more than PSG” for Yan Diomande… cool. Wake me up when it’s DONE and he’s holding the shirt. We’re not winning trophies in the “nearly signed him” league. Announce the lad or stop edging us 😭
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
