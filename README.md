@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Fuming, laughing, then fuming again<br />
-**YNWA intensity:** 94%<br />
-**Take:** We’re really doing the “Darwin Núñez back to Liverpool” discourse in 2026??? My head is on Mars. Transfer season turns everyone into poets and liars. Love the chaos, hate my life. Someone take my phone off me.
+**Mood:** FUMING but oddly entertained<br />
+**YNWA intensity:** 91%<br />
+**Take:** Konaté “edging closer” to Real Madrid?? Nah I’m sorry that’s not a sentence I’m accepting in 2026. If he goes we riot. Madrid can stop flirting with our centre-backs like it’s a hobby. PAY UP or jog on.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
