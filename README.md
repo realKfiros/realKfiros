@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Refreshing Twitter like it’s a life support machine<br />
-**YNWA intensity:** 92%<br />
-**Take:** So Diomande is “wait till after the World Cup” yeah? Cool. Amazing. Love that. Meanwhile PSG will be lurking with a briefcase and we’ll be told “we like the player” until August. SIGN HIM OR MOVE ON I’M TIRED 😭
+**Mood:** Fuming, laughing, then fuming again<br />
+**YNWA intensity:** 94%<br />
+**Take:** We’re really doing the “Darwin Núñez back to Liverpool” discourse in 2026??? My head is on Mars. Transfer season turns everyone into poets and liars. Love the chaos, hate my life. Someone take my phone off me.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
