@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** F5 button in pieces, head in hands<br />
-**YNWA intensity:** 91%<br />
-**Take:** This Diomande saga is already doing my head in. “Wait until after the World Cup” aka flirt with PSG for 3 weeks then act shocked when we walk away. Pay up or move on. I’m not doing another summer of “positive talks” and vibes.
+**Mood:** F5 key broken, heart rate 190<br />
+**YNWA intensity:** 96%<br />
+**Take:** So we’ve apparently swooped in and hijacked Newcastle for Muñoz and “activated the clause”??? I’m sorry WHAT 😭 This club moves like a stealth bomber then leaks NOTHING for 3 days. Get him on the plane, Iraola cooking already. Up the Reds.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
