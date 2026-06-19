@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** FUMING but oddly entertained<br />
+**Mood:** F5 button in pieces, head in hands<br />
 **YNWA intensity:** 91%<br />
-**Take:** Konaté “edging closer” to Real Madrid?? Nah I’m sorry that’s not a sentence I’m accepting in 2026. If he goes we riot. Madrid can stop flirting with our centre-backs like it’s a hobby. PAY UP or jog on.
+**Take:** This Diomande saga is already doing my head in. “Wait until after the World Cup” aka flirt with PSG for 3 weeks then act shocked when we walk away. Pay up or move on. I’m not doing another summer of “positive talks” and vibes.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
