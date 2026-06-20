@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** F5 key broken, heart rate 190<br />
+**Mood:** WE ARE CURSED.<br />
 **YNWA intensity:** 96%<br />
-**Take:** So we’ve apparently swooped in and hijacked Newcastle for Muñoz and “activated the clause”??? I’m sorry WHAT 😭 This club moves like a stealth bomber then leaks NOTHING for 3 days. Get him on the plane, Iraola cooking already. Up the Reds.
+**Take:** So we’re doing the “new signing + instantly injured” speedrun again??? Cool cool cool. Absolutely love signing lads and then watching their hamstring/Achilles/whatever explode before they’ve even learned the words to Allez Allez Allez. I’m tired.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
