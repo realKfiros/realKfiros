@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** WE ARE CURSED.<br />
-**YNWA intensity:** 96%<br />
-**Take:** So we’re doing the “new signing + instantly injured” speedrun again??? Cool cool cool. Absolutely love signing lads and then watching their hamstring/Achilles/whatever explode before they’ve even learned the words to Allez Allez Allez. I’m tired.
+**Mood:** Fuming but laughing through the pain<br />
+**YNWA intensity:** 93%<br />
+**Take:** We sign Víctor Muñoz then instantly he’s “injured”?? Liverpool Transfer Bingo is UNBEATEN. I’m excited, I’m stressed, I’m already doing physio in my head. Please just let ONE new lad arrive with two functioning hamstrings. YNWA.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
