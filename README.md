@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** F5 key shattered. Head’s gone.<br />
-**YNWA intensity:** 91%<br />
-**Take:** Victor Muñoz DONE and we’ve hijacked Newcastle AGAIN??? I love this club when it’s acting like a menace. Welcome to Anfield lad. Now don’t you dare let this turn into another “great on YouTube” winger saga. More signings. NOW.
+**Mood:** Fuming but coping<br />
+**YNWA intensity:** 92%<br />
+**Take:** We sign Victor Muñoz and TWO DAYS later it’s “Muñoz is injured”??? Liverpool that is CLASSIC Liverpool. I’m tired, boss. Please just let one new winger arrive with functioning limbs. Welcome anyway lad, you’ll fit right in 😭
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
