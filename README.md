@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** WE’VE HIJACKED ONE 😤<br />
+**Mood:** F5 merchant on the edge<br />
 **YNWA intensity:** 91%<br />
-**Take:** Victor Muñoz in the door and Newcastle left holding air??? Love it. I’m already convincing myself he’s the next Anfield demon down the wing. £34.5m? If he cooks twice in preseason I’m printing the statue. UP THE REDS.
+**Take:** Sky saying we’ve hijacked Newcastle for Víctor Muñoz by triggering the release clause… I’M SORRY??? We’re moving like proper villains again. Get him in, throw him a scarf, and somebody hide the fax machine before we bottle it. PLEASE.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
