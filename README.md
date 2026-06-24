@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** F5 key broken. Heart rate 180.<br />
-**YNWA intensity:** 94%<br />
-**Take:** We’ve actually gone and TRIGGERED Víctor Muñoz’s release clause and nicked him off Newcastle. Edwards aura is BACK. No more 8-week “monitoring” era. Now give me ONE more proper signing and I’ll pretend I’m calm (I’m not).
+**Mood:** F5 merchant, heart rate in the red<br />
+**YNWA intensity:** 91%<br />
+**Take:** We’ve actually gone and HIJACKED a deal for Víctor Muñoz??? Iraola era already choosing violence. Newcastle in the mud, we’re shopping with AUDACITY. Now don’t you dare stop here—get the rest done and let’s cook.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
