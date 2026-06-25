@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Signed ✅ Injured ✅ Welcome to Liverpool lad 😭<br />
+**Mood:** F5 key in pieces<br />
 **YNWA intensity:** 91%<br />
-**Take:** We finally move in the market and the universe goes “nice transfer, shame about the hamstring/Achilles/whatever” IMMEDIATELY. I’m tired, boss. Iraola hasn’t even unpacked and we’re already doing injury bingo. Please just let one new lad be normal.
+**Take:** This Yan Diomande saga is taking YEARS off my life. £100m? PSG sniffing? “Plan B, C and D”?? I don’t want plans, I want HERE WE GO. Either land him or stop edging the fanbase and move on before I implode.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
