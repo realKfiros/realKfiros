@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** F5 key in pieces<br />
+**Mood:** Fuming but laughing through the pain<br />
 **YNWA intensity:** 91%<br />
-**Take:** This Yan Diomande saga is taking YEARS off my life. £100m? PSG sniffing? “Plan B, C and D”?? I don’t want plans, I want HERE WE GO. Either land him or stop edging the fanbase and move on before I implode.
+**Take:** So our “new signing” Victor Munoz is already crocked?? Lads we didn’t even get a welcome video run and the physio room’s claimed him. This club is allergic to a calm summer. I swear Anfield has a magnetic pull for hamstrings. Please be minor. PLEASE.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
