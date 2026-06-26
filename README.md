@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** F5 key in the mud. Head’s gone.<br />
-**YNWA intensity:** 92%<br />
-**Take:** This Yan Diomande “Salah replacement” chatter has me pacing like it’s deadline day. £100m? Cool. Pay it. Or don’t. But stop edging us with Plan B, C, D nonsense. Give me a winger who terrifies fullbacks or I’m starting a petition.
+**Mood:** Fuming but laughing through it<br />
+**YNWA intensity:** 91%<br />
+**Take:** We sign Víctor Muñoz and he’s instantly “ruled out”?? We’ve got an actual new signing injury curse like it’s a side quest. I can’t take another “precautionary” anything. Get him wrapped in bubble wrap and sage the AXA asap.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
