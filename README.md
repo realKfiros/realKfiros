@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Fuming but delusionally optimistic<br />
-**YNWA intensity:** 93%<br />
-**Take:** Not us “prioritising a right-back” because Bradley’s crocked again. I can’t do another season of vibes defending. Get it done EARLY for once. No bargain-bin panic on deadline day please. My head’s on Mars. YNWA.
+**Mood:** F5 key in bits<br />
+**YNWA intensity:** 92%<br />
+**Take:** This Yan Diomande saga is eating my brain. “Wait till after the World Cup” = translated: drag it out for maximum chaos. Just pay it or walk away, I beg. I can’t do another summer of clips, whispers, and copium. YNWA.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
