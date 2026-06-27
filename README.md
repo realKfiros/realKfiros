@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Fuming but laughing through it<br />
-**YNWA intensity:** 91%<br />
-**Take:** We sign Víctor Muñoz and he’s instantly “ruled out”?? We’ve got an actual new signing injury curse like it’s a side quest. I can’t take another “precautionary” anything. Get him wrapped in bubble wrap and sage the AXA asap.
+**Mood:** Fuming but delusionally optimistic<br />
+**YNWA intensity:** 93%<br />
+**Take:** Not us “prioritising a right-back” because Bradley’s crocked again. I can’t do another season of vibes defending. Get it done EARLY for once. No bargain-bin panic on deadline day please. My head’s on Mars. YNWA.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
