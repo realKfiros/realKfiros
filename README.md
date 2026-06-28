@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** F5 key broken. Heart rate unhealthy.<br />
+**Mood:** F5 key in hospital, head’s on Mars<br />
 **YNWA intensity:** 92%<br />
-**Take:** This Víctor Muñoz release clause madness has me SPINNING. Edwards/Hughes moving like proper big dogs again?? Beat Newcastle to it and just paid up. No “monitoring” FC. Give me the HERE WE GO and let me breathe for once, please.
+**Take:** Víctor Muñoz in as the first Iraola signing??? Proper statement. I don’t even know what system we’re playing yet and I’m already booking the parade. If this is the new era, give me 3 more signings by breakfast. Up the Reds.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
