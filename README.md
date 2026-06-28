@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** F5 key in bits<br />
+**Mood:** F5 key broken. Heart rate unhealthy.<br />
 **YNWA intensity:** 92%<br />
-**Take:** This Yan Diomande saga is eating my brain. “Wait till after the World Cup” = translated: drag it out for maximum chaos. Just pay it or walk away, I beg. I can’t do another summer of clips, whispers, and copium. YNWA.
+**Take:** This Víctor Muñoz release clause madness has me SPINNING. Edwards/Hughes moving like proper big dogs again?? Beat Newcastle to it and just paid up. No “monitoring” FC. Give me the HERE WE GO and let me breathe for once, please.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
