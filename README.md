@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** F5 key in hospital, head’s on Mars<br />
+**Mood:** BUZZING but suspicious<br />
 **YNWA intensity:** 92%<br />
-**Take:** Víctor Muñoz in as the first Iraola signing??? Proper statement. I don’t even know what system we’re playing yet and I’m already booking the parade. If this is the new era, give me 3 more signings by breakfast. Up the Reds.
+**Take:** Victor Muñoz signed and I’m already on the “future Ballon d’Or” train. BUT also… why do I feel like we’re about to follow it up with 6 weeks of “monitoring options” and a deadline-day panic loan. Please just COOK properly.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
