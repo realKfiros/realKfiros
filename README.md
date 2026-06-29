@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** BUZZING but suspicious<br />
+**Mood:** FSG-induced eye twitch + full “refresh merchant” energy<br />
 **YNWA intensity:** 92%<br />
-**Take:** Victor Muñoz signed and I’m already on the “future Ballon d’Or” train. BUT also… why do I feel like we’re about to follow it up with 6 weeks of “monitoring options” and a deadline-day panic loan. Please just COOK properly.
+**Take:** So we’re “prioritising” a right-back because Bradley’s crocked and suddenly everyone’s a scout with a 4K comps folder. Just SIGN ONE. I beg. Don’t do the “we like options” waffle then roll into August with vibes and Milner at RB (from retirement).
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
