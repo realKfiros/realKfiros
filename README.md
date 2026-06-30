@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** fuming but coping<br />
+**Mood:** F5 key in bits, heart in my throat<br />
 **YNWA intensity:** 92%<br />
-**Take:** So Diomande is “a step away” from PSG after we’ve been chasing him?? Of course. Every time we need a statement signing we end up in a hostage negotiation with oil money. Edwards/Hughes/Slot PLEASE just land one marquee forward and free my head.
+**Take:** We’ve actually gone and nicked Víctor Muñoz for £34.5m and Newcastle are in the mud AGAIN. Iraola era starting with chaos and I’m obsessed. Now finish the winger/CB business and don’t you DARE leave us short. UP THE REDS.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
