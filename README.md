@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** FSG-induced eye twitch + full “refresh merchant” energy<br />
+**Mood:** fuming but coping<br />
 **YNWA intensity:** 92%<br />
-**Take:** So we’re “prioritising” a right-back because Bradley’s crocked and suddenly everyone’s a scout with a 4K comps folder. Just SIGN ONE. I beg. Don’t do the “we like options” waffle then roll into August with vibes and Milner at RB (from retirement).
+**Take:** So Diomande is “a step away” from PSG after we’ve been chasing him?? Of course. Every time we need a statement signing we end up in a hostage negotiation with oil money. Edwards/Hughes/Slot PLEASE just land one marquee forward and free my head.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
