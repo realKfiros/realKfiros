@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Fuming but protective<br />
+**Mood:** WE MOVED LIKE A SERIOUS CLUB?? 😭<br />
 **YNWA intensity:** 92%<br />
-**Take:** Inter can get in the bin with that Curtis Jones bid. That’s our Scouser, our graft, our heartbeat. £35m?? Behave. Keep him, build around him, and stop treating our academy lads like a bargain aisle. Up the Reds.
+**Take:** Jacquet officially a Red and I’m already refreshing for his first crunching tackle like it’s a title decider. £60m for a CB? Fine. JUST PLEASE be fit. I’m begging. One normal pre-season without our back line turning into dust. YNWA.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
