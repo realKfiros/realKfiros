@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** F5 key in bits, heart in my throat<br />
+**Mood:** Fuming but protective<br />
 **YNWA intensity:** 92%<br />
-**Take:** We’ve actually gone and nicked Víctor Muñoz for £34.5m and Newcastle are in the mud AGAIN. Iraola era starting with chaos and I’m obsessed. Now finish the winger/CB business and don’t you DARE leave us short. UP THE REDS.
+**Take:** Inter can get in the bin with that Curtis Jones bid. That’s our Scouser, our graft, our heartbeat. £35m?? Behave. Keep him, build around him, and stop treating our academy lads like a bargain aisle. Up the Reds.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
