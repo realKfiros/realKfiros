@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** WE MOVED LIKE A SERIOUS CLUB?? 😭<br />
+**Mood:** F5 key in tears<br />
 **YNWA intensity:** 92%<br />
-**Take:** Jacquet officially a Red and I’m already refreshing for his first crunching tackle like it’s a title decider. £60m for a CB? Fine. JUST PLEASE be fit. I’m begging. One normal pre-season without our back line turning into dust. YNWA.
+**Take:** This Barcola to Liverpool noise has got me spiralling. “Open to a move” = agent chat until PSG slam the door. Just pay up or move on, I can’t do another summer of “monitoring.” Iraola, I’m begging: give me one forward signing that’s REAL.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
