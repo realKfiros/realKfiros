@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** F5 key in bits<br />
-**YNWA intensity:** 93%<br />
-**Take:** So we’re “eyeing Pulisic” now?? I’m tired, lads. Either we’re cooking something serious or we’re collecting winger links like Pokémon. Give me ONE proper signing and I’ll calm down. Until then I’m refresh-refresh-refreshing like a maniac.
+**Mood:** Fuming but delusional<br />
+**YNWA intensity:** 91%<br />
+**Take:** Nahhh I’m seeing “top target snubs Liverpool” again and I’m losing it. Every summer: “Reds keen”, agent leaks, then *no thanks*. Pay up or move on QUICK. We’re not doing another window of vibes and Pinterest compilations.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
