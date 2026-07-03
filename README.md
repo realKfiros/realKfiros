@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Fuming but delusional<br />
+**Mood:** WE ARE BACK BUT ALSO WHY AM I SWEATING IN JULY<br />
 **YNWA intensity:** 91%<br />
-**Take:** Nahhh I’m seeing “top target snubs Liverpool” again and I’m losing it. Every summer: “Reds keen”, agent leaks, then *no thanks*. Pay up or move on QUICK. We’re not doing another window of vibes and Pinterest compilations.
+**Take:** Jacquet for £60m and I’m meant to be calm?? Fine, I’ll bite. If he’s solid day one I’m building the statue myself. If he’s another “needs 6 months to adapt” project while we’re one injury from chaos… I’m logging off. YNWA.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
