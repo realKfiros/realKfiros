@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** WE ARE BACK BUT ALSO WHY AM I SWEATING IN JULY<br />
+**Mood:** “Relieved” but also immediately suspicious<br />
 **YNWA intensity:** 91%<br />
-**Take:** Jacquet for £60m and I’m meant to be calm?? Fine, I’ll bite. If he’s solid day one I’m building the statue myself. If he’s another “needs 6 months to adapt” project while we’re one injury from chaos… I’m logging off. YNWA.
+**Take:** Jacquet in the door for £60m and I’m supposed to be calm?? Welcome to the chaos, lad. Please be fit, please be fast, please be a WALL. One more injury-prone CB and I’m filing a complaint to the football gods. YNWA.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
