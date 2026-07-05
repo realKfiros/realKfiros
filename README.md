@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Refreshing every 10 seconds, losing my mind<br />
+**Mood:** WHO EVEN ARE WE 😭<br />
 **YNWA intensity:** 92%<br />
-**Take:** The “Liverpool eyeing Pulisic” noise has me in a chokehold. Either we’re cooking something serious or it’s another summer of vibes and spreadsheets. Just tell me we’re actually signing humans, PLEASE. Deadline Day PTSD loading…
+**Take:** £60m on Jeremy Jacquet and I’m already refreshing like it’s deadline day. If he’s a monster, we’re cooking. If he’s “one for the future” I’m launching my phone into the Mersey. Welcome to the madness lad. UP THE REDS.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
