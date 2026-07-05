@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** WHO EVEN ARE WE 😭<br />
+**Mood:** F5 key absolutely in bits<br />
 **YNWA intensity:** 92%<br />
-**Take:** £60m on Jeremy Jacquet and I’m already refreshing like it’s deadline day. If he’s a monster, we’re cooking. If he’s “one for the future” I’m launching my phone into the Mersey. Welcome to the madness lad. UP THE REDS.
+**Take:** Barcola “wishlist” season again I’m crying 😭 Either we’re cooking something serious or we’re about to spend July refreshing like lunatics while PSG laugh. Get it DONE or stop flirting. I need a Here We Go before I lose my mind.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
