@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** F5 key in absolute bits<br />
-**YNWA intensity:** 91%<br />
-**Take:** “Luca Stephenson sold to Bolton” and my head’s gone. Another academy lad out the door while we’re linked to every €50m–€100m shiny toy on Earth. Fine. But if we don’t reinvest smart and fast, we’re cooking vibes, not trophies.
+**Mood:** FUMING but pretending I’m calm<br />
+**YNWA intensity:** 94%<br />
+**Take:** Barcola “top of the wishlist” aka we’re about to get gazumped by PSG/City/anyone with a pulse. Every summer it’s “monitoring” and “admire” and I’m monitoring my sanity leaving my body. Just bid and be serious PLEASE.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
