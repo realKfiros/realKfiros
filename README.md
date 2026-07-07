@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** F5 key in pieces, lads<br />
-**YNWA intensity:** 91%<br />
-**Take:** Barcola “top of the wishlist” again? Cool. Another week of “monitoring” and “contacts made” while rivals actually SIGN people. If this ends with a “PSG want silly money” brief I’m going to levitate. Get it DONE or stop flirting 😭
+**Mood:** F5 key in bits. Heart rate 200. Owners PLEASE. <br />
+**YNWA intensity:** 93%<br />
+**Take:** Another day, another “Liverpool are planning an approach for Jarrod Bowen” whisper. Cool. So we’re doing *planning* now, yeah? PLAN a bid. PLAN a medical. PLAN him holding the shirt. Stop edging the fanbase and SIGN SOMEONE.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
