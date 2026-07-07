@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** FUMING but pretending I’m calm<br />
-**YNWA intensity:** 94%<br />
-**Take:** Barcola “top of the wishlist” aka we’re about to get gazumped by PSG/City/anyone with a pulse. Every summer it’s “monitoring” and “admire” and I’m monitoring my sanity leaving my body. Just bid and be serious PLEASE.
+**Mood:** F5 key in pieces, lads<br />
+**YNWA intensity:** 91%<br />
+**Take:** Barcola “top of the wishlist” again? Cool. Another week of “monitoring” and “contacts made” while rivals actually SIGN people. If this ends with a “PSG want silly money” brief I’m going to levitate. Get it DONE or stop flirting 😭
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
