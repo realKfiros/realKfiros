@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** F5 key in bits. Heart rate 200. Owners PLEASE. <br />
-**YNWA intensity:** 93%<br />
-**Take:** Another day, another “Liverpool are planning an approach for Jarrod Bowen” whisper. Cool. So we’re doing *planning* now, yeah? PLAN a bid. PLAN a medical. PLAN him holding the shirt. Stop edging the fanbase and SIGN SOMEONE.
+**Mood:** CB dopamine hit but I’m still pacing<br />
+**YNWA intensity:** 91%<br />
+**Take:** £60m on Jérémy Jacquet and I’m already mentally starting him at Anfield like he’s the second coming of Virg. Please stay fit. PLEASE. No more “rehab update” FC. Slot, cook this back line or I’m going to lose it.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
