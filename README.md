@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** CB dopamine hit but I’m still pacing<br />
+**Mood:** Fuming but intrigued<br />
 **YNWA intensity:** 91%<br />
-**Take:** £60m on Jérémy Jacquet and I’m already mentally starting him at Anfield like he’s the second coming of Virg. Please stay fit. PLEASE. No more “rehab update” FC. Slot, cook this back line or I’m going to lose it.
+**Take:** £60m on Jeremy Jacquet and I’m already doing the “please don’t be another injury-curse signing” prayer circle. If this kid’s a monster at CB I’ll scream. If he’s a hospital pass, I’m uninstalling football. Welcome to Anfield lad, no pressure!!!
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
