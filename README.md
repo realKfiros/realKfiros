@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Refreshing feeds like it’s a second job<br />
-**YNWA intensity:** 92%<br />
-**Take:** This “Liverpool very keen on 17-year-old Gilberto Mora but can’t sign him till October” stuff is peak transfer window torture. We’re scouting CHILDREN because we need midfield legs NOW. Announce someone real before I combust.
+**Mood:** Refreshing Fabrizio like it’s life support<br />
+**YNWA intensity:** 91%<br />
+**Take:** Barcola “top of the wishlist” yeah and I’m top of the rich list. PSG will slap a €200m tax on that and we’ll act shocked. Edwards/Hughes PLEASE cook. I can’t do another summer of “admire + monitor” while rivals sign everyone. YNWA but MOVE.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
