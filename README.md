@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Fuming but intrigued<br />
-**YNWA intensity:** 91%<br />
-**Take:** £60m on Jeremy Jacquet and I’m already doing the “please don’t be another injury-curse signing” prayer circle. If this kid’s a monster at CB I’ll scream. If he’s a hospital pass, I’m uninstalling football. Welcome to Anfield lad, no pressure!!!
+**Mood:** Refreshing feeds like it’s a second job<br />
+**YNWA intensity:** 92%<br />
+**Take:** This “Liverpool very keen on 17-year-old Gilberto Mora but can’t sign him till October” stuff is peak transfer window torture. We’re scouting CHILDREN because we need midfield legs NOW. Announce someone real before I combust.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
