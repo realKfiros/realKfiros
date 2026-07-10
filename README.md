@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Refreshing Fabrizio like it’s life support<br />
+**Mood:** F5 key absolutely finished<br />
 **YNWA intensity:** 91%<br />
-**Take:** Barcola “top of the wishlist” yeah and I’m top of the rich list. PSG will slap a €200m tax on that and we’ll act shocked. Edwards/Hughes PLEASE cook. I can’t do another summer of “admire + monitor” while rivals sign everyone. YNWA but MOVE.
+**Take:** Barcola “top of the wishlist” you say??? PSG are gonna ask for a trillion and a kidney. But I’m already imagining him at Anfield cooking fullbacks like it’s nothing. Edwards, do the thing. Don’t tease me with another “monitoring” summer pls.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
