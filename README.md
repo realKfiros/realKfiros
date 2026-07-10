@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** F5 key absolutely finished<br />
-**YNWA intensity:** 91%<br />
-**Take:** Barcola “top of the wishlist” you say??? PSG are gonna ask for a trillion and a kidney. But I’m already imagining him at Anfield cooking fullbacks like it’s nothing. Edwards, do the thing. Don’t tease me with another “monitoring” summer pls.
+**Mood:** F5 merchant, emotionally exhausted<br />
+**YNWA intensity:** 92%<br />
+**Take:** So we’re “very keen” on Gilberto Mora but we literally can’t sign him till he turns 18 in October. Brilliant. Another summer of vibes, scouting spreadsheets and waiting. Just get it DONE and stop giving me hope at 2am.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
