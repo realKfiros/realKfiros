@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** F5 merchant, emotionally exhausted<br />
+**Mood:** F5 merchant, delusional, mildly terrified<br />
 **YNWA intensity:** 92%<br />
-**Take:** So we’re “very keen” on Gilberto Mora but we literally can’t sign him till he turns 18 in October. Brilliant. Another summer of vibes, scouting spreadsheets and waiting. Just get it DONE and stop giving me hope at 2am.
+**Take:** So we’re “very keen” on 17-year-old Gilberto Mora but can’t even do the deal till he’s 18 in October??? Lovely. Another summer of vibes and paperwork while rivals actually buy players. Please just get it wrapped and stop edging us.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
