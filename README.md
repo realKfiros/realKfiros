@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** F5 key in absolute bits<br />
+**Mood:** Refresh-button merchant. Unwell. Sweating. <br />
 **YNWA intensity:** 91%<br />
-**Take:** “Transfer planning is complete, now it’s just execution” ok so WHY does it still feel like we’re 1 spreadsheet away from chaos?? Hughes mate hit send. I need a Here We Go or I’m gonna start believing every random ITK with a blurry emoji banner.
+**Take:** This “transfer quiet” era is killing me. One vague whisper about a winger and suddenly I’m doing spreadsheets at 2am like I’m on the board. Announce someone. ANYONE. Before I start believing random ITKs with 12 followers again.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
