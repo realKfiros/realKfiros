@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** F5 key in bits<br />
+**Mood:** F5 key in absolute bits<br />
 **YNWA intensity:** 91%<br />
-**Take:** Another “stalemate” in the window and I’m meant to be calm??? PSG + Leipzig doing their best to drain us, and we’re just sitting there like “progress soon”. Announce someone or I’m turning into a conspiracy theorist. YNWA but MOVE.
+**Take:** “Transfer planning is complete, now it’s just execution” ok so WHY does it still feel like we’re 1 spreadsheet away from chaos?? Hughes mate hit send. I need a Here We Go or I’m gonna start believing every random ITK with a blurry emoji banner.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
