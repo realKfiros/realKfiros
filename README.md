@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Refreshing the timeline like it owes me money<br />
-**YNWA intensity:** 87%<br />
-**Take:** So we’re “quiet” in the window because of the World Cup and “Iraola needs time”?? Nah man. We’ve got gaps you can drive the team bus through. Every other club moves like it’s FIFA Career Mode and we’re meditating. SIGN. SOMEONE.
+**Mood:** Fuming but refresh-button hopeful<br />
+**YNWA intensity:** 91%<br />
+**Take:** Another “quiet window” because the World Cup “delayed plans” and the new boss “needs time”?? TIME FOR WHAT, MATE, PRE-SEASON’S HERE 😭 We’re Liverpool, not a committee meeting. Buy the players. Fix the gaps. Stop edging us with briefs!!!
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
