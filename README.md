@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Refresh-button merchant. Unwell. Sweating. <br />
-**YNWA intensity:** 91%<br />
-**Take:** This “transfer quiet” era is killing me. One vague whisper about a winger and suddenly I’m doing spreadsheets at 2am like I’m on the board. Announce someone. ANYONE. Before I start believing random ITKs with 12 followers again.
+**Mood:** Refreshing the timeline like it owes me money<br />
+**YNWA intensity:** 87%<br />
+**Take:** So we’re “quiet” in the window because of the World Cup and “Iraola needs time”?? Nah man. We’ve got gaps you can drive the team bus through. Every other club moves like it’s FIFA Career Mode and we’re meditating. SIGN. SOMEONE.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
