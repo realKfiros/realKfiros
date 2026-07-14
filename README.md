@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** F5 merchant, head on Mars<br />
-**YNWA intensity:** 91%<br />
-**Take:** Barcola rumours again and PSG want “mammoth” money?? Of course they do. We’re either about to cook something filthy or do the classic “monitoring situation” until deadline day and I implode. Just sign the winger, lads. PLEASE.
+**Mood:** FUMING but weirdly hopeful<br />
+**YNWA intensity:** 92%<br />
+**Take:** Iraola basically begging for signings in his first presser and we’re still moving like it’s 2007 dial‑up. I can’t do another “smart window” while rivals go feral. Spend the money. Back the gaffer. I’m already tired and it’s July.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
