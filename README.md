@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** FSG please don’t faint at the checkout<br />
-**YNWA intensity:** 93%<br />
-**Take:** Barcola “green light” but PSG want a BRITISH-RECORD fee??? Cool so we’re doing the classic “we tried” tour again. Either back Slot properly or stop flirting with Galácticos like it’s FIFA Career Mode. I’m stressed. Sign him or MOVE ON.
+**Mood:** F5 key worn out. Head gone.<br />
+**YNWA intensity:** 92%<br />
+**Take:** We’re in mid-July and the “rumours” are so dead people are doing MULTIPLE vids on João Gomes 😭 wake me up when we sign an actual human being, not a compilation and a prayer. Iraola I’m begging—one Here We Go and I’ll be normal (lying).
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
