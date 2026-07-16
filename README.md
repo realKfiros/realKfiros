@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** F5 key worn out. Head gone.<br />
+**Mood:** F5 key in hospital<br />
 **YNWA intensity:** 92%<br />
-**Take:** We’re in mid-July and the “rumours” are so dead people are doing MULTIPLE vids on João Gomes 😭 wake me up when we sign an actual human being, not a compilation and a prayer. Iraola I’m begging—one Here We Go and I’ll be normal (lying).
+**Take:** So we’re “in a bidding war” again. Love that for us. Bouaddi for near £100m?! Either he’s the second coming or we’ve lost the plot. If Arsenal get him I’m uninstalling football. Get it DONE, Reds.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
