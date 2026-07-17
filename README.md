@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** F5 key in a coma, head in hands<br />
+**Mood:** F5 key broken. Head in hands. Pride hurt.<br />
 **YNWA intensity:** 91%<br />
-**Take:** Pre-season starts and we’ve got a 15-man squad like we’re playing 5-a-side at Powerleague. Injuries, kids, and vibes. Iraola’s “suffocate teams” talk? Yes. Love it. Now SUFFOCATE the transfer market and bring bodies in. Please.
+**Take:** Us in mid-July 2026 still living off “transfer planning is complete” like it’s a signing. EXECUTE THEN. I’m seeing fan channels do 8 vids on João Gomes ffs. Iraola said it’s a “difficult situation”… mate WE KNOW. Sign players!!!
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
