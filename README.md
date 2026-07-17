@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** F5 key broken. Head in hands. Pride hurt.<br />
-**YNWA intensity:** 91%<br />
-**Take:** Us in mid-July 2026 still living off “transfer planning is complete” like it’s a signing. EXECUTE THEN. I’m seeing fan channels do 8 vids on João Gomes ffs. Iraola said it’s a “difficult situation”… mate WE KNOW. Sign players!!!
+**Mood:** F5 key in absolute bits<br />
+**YNWA intensity:** 92%<br />
+**Take:** This Barcola noise again… “British-record fee”?? PSG really think we’re printing money at Kirkby 😭 Either pay it and cook, or walk away and stop blueballing the fanbase. I’m tired, boss. Give me ONE decisive move.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
