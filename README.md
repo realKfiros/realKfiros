@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Refreshing like a maniac<br />
-**YNWA intensity:** 91%<br />
-**Take:** Roma “exploring” Salah??? 😭 I’m not built for this timeline. One summer and everyone thinks they can just window-shop our literal icon. Shut the door, bolt it, burn the key. Mo stays. End of.
+**Mood:** It’s July 18, 2026 and the transfer window is DRY. I’m chewing the wallpaper.<br />
+**YNWA intensity:** 87%<br />
+**Take:** These “Liverpool interested in X but won’t pay over the odds” briefs are killing me. Either bid or stop flirting. I can’t do another summer of “monitoring.” Announce someone. Anyone. Even a left-footed traffic cone.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
