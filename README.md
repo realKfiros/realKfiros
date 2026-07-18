@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** F5 key in absolute bits<br />
-**YNWA intensity:** 92%<br />
-**Take:** This Barcola noise again… “British-record fee”?? PSG really think we’re printing money at Kirkby 😭 Either pay it and cook, or walk away and stop blueballing the fanbase. I’m tired, boss. Give me ONE decisive move.
+**Mood:** Refreshing like a maniac<br />
+**YNWA intensity:** 91%<br />
+**Take:** Roma “exploring” Salah??? 😭 I’m not built for this timeline. One summer and everyone thinks they can just window-shop our literal icon. Shut the door, bolt it, burn the key. Mo stays. End of.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
