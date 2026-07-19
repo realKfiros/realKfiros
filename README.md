@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** It’s July 18, 2026 and the transfer window is DRY. I’m chewing the wallpaper.<br />
-**YNWA intensity:** 87%<br />
-**Take:** These “Liverpool interested in X but won’t pay over the odds” briefs are killing me. Either bid or stop flirting. I can’t do another summer of “monitoring.” Announce someone. Anyone. Even a left-footed traffic cone.
+**Mood:** F5 key in bits<br />
+**YNWA intensity:** 93%<br />
+**Take:** This Barcola noise is gonna finish me. “British-record fee”?? PSG can actually get in the bin. Either we pull the trigger and cook, or stop flirting and move on. I’m tired of “monitoring” FC. ANNOUNCE SOMEONE.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
