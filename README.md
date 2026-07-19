@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** F5 key in bits<br />
-**YNWA intensity:** 93%<br />
-**Take:** This Barcola noise is gonna finish me. “British-record fee”?? PSG can actually get in the bin. Either we pull the trigger and cook, or stop flirting and move on. I’m tired of “monitoring” FC. ANNOUNCE SOMEONE.
+**Mood:** FUMING but refresh-keyed<br />
+**YNWA intensity:** 92%<br />
+**Take:** Another day of “quiet window, don’t worry” and I’m losing my mind. We’re Liverpool, not a savings account. Stop briefing patience and drop a proper signing bomb. Pre-season’s coming and we’re vibing off *hope* again. I hate it here.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
