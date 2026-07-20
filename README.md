@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Refreshing the timeline like it owes me money<br />
+**Mood:** FUMING but coping<br />
 **YNWA intensity:** 91%<br />
-**Take:** Another day, another “Liverpool and Arsenal battling for a Dutch defender” headline and STILL no proper signing in my eyeballs. I’m tired, boss. Either drop the HERE WE GO or stop edging us. Pre-season soon and we’re collecting links like Pokémon.
+**Take:** This “quiet window” is driving me insane. Every day it’s “monitoring” and “considering” and I’m sat here refreshing like a gremlin. Get the deals DONE before pre-season, please. I beg. My head’s gone.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
