@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** FUMING but weirdly hopeful<br />
-**YNWA intensity:** 92%<br />
-**Take:** Szoboszlai signed a new long-term deal and I’m supposed to be calm?? GIVE HIM THE ARMBAND, THE KEYS TO THE CITY, AND A STATUE OUTSIDE ANFIELD. Now please… sign a DM and a right back before I start chewing the curtains.
+**Mood:** Refresh button broken. Veins popping.<br />
+**YNWA intensity:** 93%<br />
+**Take:** So we’re really doing another summer where our “big news” is vibes and a random “transfer hopes” roundup while Arsenal are “in a battle” for the same lad? WAKE UP and sign someone before pre-season turns into cope-season. Iraola needs weapons NOW.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
