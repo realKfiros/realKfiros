@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Refresh button broken. Veins popping.<br />
-**YNWA intensity:** 93%<br />
-**Take:** So we’re really doing another summer where our “big news” is vibes and a random “transfer hopes” roundup while Arsenal are “in a battle” for the same lad? WAKE UP and sign someone before pre-season turns into cope-season. Iraola needs weapons NOW.
+**Mood:** WE’RE DOING THIS AGAIN???<br />
+**YNWA intensity:** 91%<br />
+**Take:** So the big “topic” is us being linked with Manu Koné and my head’s gone. Brilliant player? Sure. But if this turns into another saga where we haggle, miss out, then panic-buy on deadline day I’m turning my phone off. Get it DONE or MOVE.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
