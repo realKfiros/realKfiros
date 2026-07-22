@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** WE’RE DOING THIS AGAIN???<br />
+**Mood:** Refreshing the timeline like it’s a full-time job<br />
 **YNWA intensity:** 91%<br />
-**Take:** So the big “topic” is us being linked with Manu Koné and my head’s gone. Brilliant player? Sure. But if this turns into another saga where we haggle, miss out, then panic-buy on deadline day I’m turning my phone off. Get it DONE or MOVE.
+**Take:** Iraola saying Bajcetic + Endo are “nearing a return” has me on my knees. PLEASE. Get bodies back in training. I’m tired of “updates” and “nearing” and “almost.” I need actual footballers on actual grass NOW.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
