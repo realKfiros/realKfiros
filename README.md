@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Fuming but weirdly optimistic<br />
+**Mood:** Why are we collecting long-term injuries like Pokémon??<br />
 **YNWA intensity:** 92%<br />
-**Take:** Another injury list update and it’s basically a novel. Pre-season hasn’t even started properly and we’re already missing half a XI. How are we meant to cook like this? Someone bubble wrap the entire squad and ban grass immediately.
+**Take:** Ekitike Achilles, Leoni ACL, Bradley “not anytime soon”… it’s JULY. Iraola hasn’t even unpacked and we’re already down half a squad. Pre-season tour with 12 fit lads and a prayer. This is so Liverpool it hurts.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
