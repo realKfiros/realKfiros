@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Why are we collecting long-term injuries like Pokémon??<br />
+**Mood:** Refresh button merchant. Slightly unwell. Still convinced.  <br />
 **YNWA intensity:** 92%<br />
-**Take:** Ekitike Achilles, Leoni ACL, Bradley “not anytime soon”… it’s JULY. Iraola hasn’t even unpacked and we’re already down half a squad. Pre-season tour with 12 fit lads and a prayer. This is so Liverpool it hurts.
+**Take:** That “£34m bid rejected” transfer drama… here we go again. Pay the extra, stop playing hardball, and GET IT DONE before PSG swoops like it’s FIFA career mode. I’m tired boss. New season soon. I need signings, not vibes.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
