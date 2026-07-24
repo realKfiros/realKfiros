@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Refresh button merchant. Slightly unwell. Still convinced.  <br />
-**YNWA intensity:** 92%<br />
-**Take:** That “£34m bid rejected” transfer drama… here we go again. Pay the extra, stop playing hardball, and GET IT DONE before PSG swoops like it’s FIFA career mode. I’m tired boss. New season soon. I need signings, not vibes.
+**Mood:** Fuming but weirdly hopeful<br />
+**YNWA intensity:** 91%<br />
+**Take:** Another bid rejected and we’re “in a battle” again. Classic. Pay the money or move on, I’m begging. Iraola needs a proper statement signing, not vibes and spreadsheets. This window is stressing me OUT.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
