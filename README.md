@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Fuming but weirdly hopeful<br />
-**YNWA intensity:** 91%<br />
-**Take:** Another bid rejected and we’re “in a battle” again. Classic. Pay the money or move on, I’m begging. Iraola needs a proper statement signing, not vibes and spreadsheets. This window is stressing me OUT.
+**Mood:** FSG-induced palpitations<br />
+**YNWA intensity:** 93%<br />
+**Take:** This “quiet” summer is actually deafening. We’re going into pre-season with half the squad missing, vibes held together by thread, and I’m supposed to be calm??? Get the incomings DONE and stop playing transfer sudoku while everyone else gears up.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
