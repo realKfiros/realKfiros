@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** FSG-induced palpitations<br />
-**YNWA intensity:** 93%<br />
-**Take:** This “quiet” summer is actually deafening. We’re going into pre-season with half the squad missing, vibes held together by thread, and I’m supposed to be calm??? Get the incomings DONE and stop playing transfer sudoku while everyone else gears up.
+**Mood:** Refresh button broken, head gone<br />
+**YNWA intensity:** 92%<br />
+**Take:** The “injury list” update dropping in JULY is pure Liverpool heritage. Pre-season hasn’t even properly started and we’re already counting hamstrings like trophies. Please just give us one week of normality. One. Week.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
