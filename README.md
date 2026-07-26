@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Refresh button broken, head gone<br />
+**Mood:** BUZZING but still side-eyeing everything<br />
 **YNWA intensity:** 92%<br />
-**Take:** The “injury list” update dropping in JULY is pure Liverpool heritage. Pre-season hasn’t even properly started and we’re already counting hamstrings like trophies. Please just give us one week of normality. One. Week.
+**Take:** Chiesa scoring in Iraola’s first game?? We are SO back. But also… it’s Sunderland and I’m already imagining 7 new signings by Tuesday. Preseason optimism is a disease and I’ve caught it again. YNWA.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
