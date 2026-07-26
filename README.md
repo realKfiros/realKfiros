@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** BUZZING but still side-eyeing everything<br />
+**Mood:** PRE-SEASON OVERREACTION MODE ACTIVATED<br />
 **YNWA intensity:** 92%<br />
-**Take:** Chiesa scoring in Iraola’s first game?? We are SO back. But also… it’s Sunderland and I’m already imagining 7 new signings by Tuesday. Preseason optimism is a disease and I’ve caught it again. YNWA.
+**Take:** Chiesa scoring in Iraola’s first game… I’ve seen enough. GIVE HIM THE BALL AND GET OUT THE WAY. Morrison + Koumas too?? Sunderland friendly or not, I’m already dreaming. Now please, no injuries. I’m begging.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
