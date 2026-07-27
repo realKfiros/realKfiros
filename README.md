@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** PRE-SEASON OVERREACTION MODE ACTIVATED<br />
-**YNWA intensity:** 92%<br />
-**Take:** Chiesa scoring in Iraola’s first game… I’ve seen enough. GIVE HIM THE BALL AND GET OUT THE WAY. Morrison + Koumas too?? Sunderland friendly or not, I’m already dreaming. Now please, no injuries. I’m begging.
+**Mood:** DEFENCE PANIC. PRE-SEASON AND WE’RE ALREADY INJURY FC. WHY. <br />
+**YNWA intensity:** 93%<br />
+**Take:** Joe Gomez going down again has me seeing 38 games of “makeshift back four” nightmares. Love him but my head’s gone. Iraola mate I’m begging: sign a CB TODAY. Van Dijk can’t play 6,000 minutes forever 😭 YNWA.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
