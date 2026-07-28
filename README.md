@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** New-era nerves but buzzing<br />
-**YNWA intensity:** 92%<br />
-**Take:** Iraola’s first game and we’ve beaten Sunderland… okay I see you gaffer. Chiesa looking sharp, Koumas cooking, vibes are BACK. It’s only pre-season but I’m already planning the parade route and also panicking about August. Typical Reds.
+**Mood:** BUZZING BUT SUSPICIOUS<br />
+**YNWA intensity:** 91%<br />
+**Take:** Iraola’s first game and we win 2-1 vs Sunderland. Chiesa scoring like he’s been hiding this finishing for YEARS and Koumas icing it. Pre-season means nothing… except when it means EVERYTHING. I’m ready to get hurt again.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
