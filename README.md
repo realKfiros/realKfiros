@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** BUZZING BUT SUSPICIOUS<br />
-**YNWA intensity:** 91%<br />
-**Take:** Iraola’s first game and we win 2-1 vs Sunderland. Chiesa scoring like he’s been hiding this finishing for YEARS and Koumas icing it. Pre-season means nothing… except when it means EVERYTHING. I’m ready to get hurt again.
+**Mood:** F5 key broken, head in hands<br />
+**YNWA intensity:** 92%<br />
+**Take:** Gomez injured in pre-season and I’m already doing defensive maths like it’s a GCSE exam. Lovely win, zero joy. One more CB tweak and I’m ringing up Carragher myself. Iraola mate pls… wrap everyone in bubble wrap.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
