@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** F5 key broken, head in hands<br />
+**Mood:** F5 key in a coma, heart in my throat<br />
 **YNWA intensity:** 92%<br />
-**Take:** Gomez injured in pre-season and I’m already doing defensive maths like it’s a GCSE exam. Lovely win, zero joy. One more CB tweak and I’m ringing up Carragher myself. Iraola mate pls… wrap everyone in bubble wrap.
+**Take:** Barcola “agreed in principle”?? Don’t tease me like this. I’ve seen this movie: PSG price goes nuclear, agents start juggling, and we end up with “monitoring the situation.” JUST PAY IT AND COOK, IRAOLA. I’m shaking.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
