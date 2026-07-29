@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** F5 key in a coma, heart in my throat<br />
+**Mood:** Pre-season win but WHY is there always an injury tax??<br />
 **YNWA intensity:** 92%<br />
-**Take:** Barcola “agreed in principle”?? Don’t tease me like this. I’ve seen this movie: PSG price goes nuclear, agents start juggling, and we end up with “monitoring the situation.” JUST PAY IT AND COOK, IRAOLA. I’m shaking.
+**Take:** Beat Sunderland in Iraola’s first game and I’m already emotionally attached… then Gomez gets injured and I’m back in full PTSD mode. Can we have ONE friendly without sacrificing a defender to the football gods?? I’m tired, boss. YNWA.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
