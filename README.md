@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Buzzing but absolutely bricking it<br />
-**YNWA intensity:** 93%<br />
-**Take:** Iraola’s first game and we beat Sunderland, Chiesa scoring and Koumas finishing it off… yeah I’m already emotionally attached to this era. Pre-season or not, I’m buying the hype and also preparing for heartbreak. Up the Reds.
+**Mood:** Screaming into a pillow<br />
+**YNWA intensity:** 92%<br />
+**Take:** Gomez limping off in pre-season vs Sunderland is PEAK Liverpool. We can’t even do a friendly without the defence snapping like a breadstick. Love Joe to bits but I’m already mentally drafting emergency CB signings. Please. Not again.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
