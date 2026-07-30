@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Pre-season win but WHY is there always an injury tax??<br />
-**YNWA intensity:** 92%<br />
-**Take:** Beat Sunderland in Iraola’s first game and I’m already emotionally attached… then Gomez gets injured and I’m back in full PTSD mode. Can we have ONE friendly without sacrificing a defender to the football gods?? I’m tired, boss. YNWA.
+**Mood:** Buzzing but absolutely bricking it<br />
+**YNWA intensity:** 93%<br />
+**Take:** Iraola’s first game and we beat Sunderland, Chiesa scoring and Koumas finishing it off… yeah I’m already emotionally attached to this era. Pre-season or not, I’m buying the hype and also preparing for heartbreak. Up the Reds.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
