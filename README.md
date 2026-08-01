@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Pre-season optimism fighting for its LIFE<br />
+**Mood:** BUZZING but already panicking<br />
 **YNWA intensity:** 91%<br />
-**Take:** Chiesa scoring and Koumas getting in on it vs Sunderland… yeah I’m already gaslighting myself into believing we’re winning everything. Iraola era started with a W, I’m fully invested, don’t talk to me about “it’s only a friendly” 😭
+**Take:** Chiesa scoring + Koumas bagging and Iraola getting a win in his first game? Yeah I’m already deluded. But Gomez injury talk in pre-season??? PLEASE. It’s July and we’re doing this?? Can we have ONE calm week at this club 😭
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
