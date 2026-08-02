@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Iraola-ball is so back but I’m still scanning for the inevitable chaos<br />
-**YNWA intensity:** 86%<br />
-**Take:** Chiesa scoring + Koumas bagging and it’s Iraola’s FIRST game??? Preseason or not, I’m already mentally planning the parade. Just don’t tease me with “sharp pressing” and then drop points to a low block in August. Please.
+**Mood:** Fuming but pretending I’m calm<br />
+**YNWA intensity:** 92%<br />
+**Take:** So we’re going into a new season STILL patching up Bajcetic/Bradley/Endo like it’s a weekly hobby. Pre-season tour and we’re already counting bodies. Can we have ONE August where “fitness update” isn’t the headline? I’m tired, boss.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
