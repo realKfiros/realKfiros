@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Fuming but pretending I’m calm<br />
+**Mood:** F5 key broken, head in hands<br />
 **YNWA intensity:** 92%<br />
-**Take:** So we’re going into a new season STILL patching up Bajcetic/Bradley/Endo like it’s a weekly hobby. Pre-season tour and we’re already counting bodies. Can we have ONE August where “fitness update” isn’t the headline? I’m tired, boss.
+**Take:** Barcola rumours again and PSG want a “mammoth” fee?? Cool cool cool. We either pull off the most Liverpool coup ever or we get strung along all month and sign a 17-year-old “one for the future”. I’m tired, boss.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
