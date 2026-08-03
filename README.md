@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** F5 key broken, head in hands<br />
+**Mood:** F5 key in a headlock<br />
 **YNWA intensity:** 92%<br />
-**Take:** Barcola rumours again and PSG want a “mammoth” fee?? Cool cool cool. We either pull off the most Liverpool coup ever or we get strung along all month and sign a 17-year-old “one for the future”. I’m tired, boss.
+**Take:** Barcola “keen to join” Liverpool… I’ve seen this movie and it ends with PSG asking for the GDP of a small country. Either pay up and cook, or stop feeding us vibes and get it DONE. I’m already attached ffs.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
