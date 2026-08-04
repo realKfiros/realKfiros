@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Panicking, refreshing, spiralling<br />
+**Mood:** F5 key in pieces, brain in meltdown<br />
 **YNWA intensity:** 91%<br />
-**Take:** Everyone losing their head over the “no proper RB/CB” situation and I GET IT. Pre-season vibes shouldn’t feel like end-times, yet here we are. One knock and we’re patching the back line with prayers. Please. Just. ONE. solid signing. YNWA but I’m stressed.
+**Take:** We’re really doing the “no rumours, no signings, vibes only” summer again aren’t we. Meanwhile everyone else is shopping like it’s Black Friday. If we start the season with “we’re waiting for the right player” I’m going to combust. YNWA but HURRY UP.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
