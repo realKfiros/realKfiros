@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** FUMING but strangely hopeful<br />
-**YNWA intensity:** 93%<br />
-**Take:** Another day of “surely today’s the day” and we’re still sat here watching the defence get held together with tape and prayers. If we start the season one CB injury away from chaos again I’m gonna lose my head. SIGN SOMEONE. NOW. YNWA.
+**Mood:** FSG please I’m begging<br />
+**YNWA intensity:** 94%<br />
+**Take:** So we’re “very thin” in defence AND Bradley’s still coming back from that knee injury and we’re sat here doing monk-mode in the market??? I’m tired man. One more “we’re monitoring options” and I’m gonna start scouting right-backs on FIFA myself.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
