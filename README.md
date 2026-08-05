@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** FUMING<br />
-**YNWA intensity:** 92%<br />
-**Take:** Joe Gomez injury news again?? We cannot do another season of “CB roulette” and vibes. It’s August and I’m already counting fit defenders like it’s wartime rations. Get reinforcements in NOW before we’re playing midfielders at the back.
+**Mood:** FUMING but strangely hopeful<br />
+**YNWA intensity:** 93%<br />
+**Take:** Another day of “surely today’s the day” and we’re still sat here watching the defence get held together with tape and prayers. If we start the season one CB injury away from chaos again I’m gonna lose my head. SIGN SOMEONE. NOW. YNWA.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
