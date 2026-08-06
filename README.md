@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Fuming but trying to laugh it off<br />
+**Mood:** DEFENCE IN THE MUD<br />
 **YNWA intensity:** 92%<br />
-**Take:** Gomez injured in pre-season already?? We won and I STILL feel like we lost. Our defence is held together with hopes, tape and Virgil aura. It’s August 2026 and I’m stress-testing my lifespan. Please let it be minor. PLEASE.
+**Take:** Beat Sunderland and somehow STILL lose Gomez?? Pre-season friendlies are CURSED. Iraola era “in style” my head—style doesn’t stop us having one fit centre-back by August. Get a CB in NOW before I spontaneously combust.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
