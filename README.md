@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** PSG tax rage + “just pay it” spiral<br />
+**Mood:** WE CAN’T HAVE NICE THINGS<br />
 **YNWA intensity:** 92%<br />
-**Take:** Barcola for nearly DOUBLE our offer?? PSG are taking the absolute piss. Either we walk and buy smart, or we cave and I pretend it was “market value” all along. But I swear if we end August with vibes and no winger I’m going feral.
+**Take:** Gomez gets injured again and suddenly our “depth” is vibes and prayers. Pre-season and I’m already doing centre-back maths like it’s GCSE. Someone wrap our defenders in bubble wrap and sign a CB yesterday. I’m tired, boss.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
