@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** WE CAN’T HAVE NICE THINGS<br />
+**Mood:** F5 merchant, clinically unwell<br />
 **YNWA intensity:** 92%<br />
-**Take:** Gomez gets injured again and suddenly our “depth” is vibes and prayers. Pre-season and I’m already doing centre-back maths like it’s GCSE. Someone wrap our defenders in bubble wrap and sign a CB yesterday. I’m tired, boss.
+**Take:** This “Barcola next week contacts” stuff has me pacing like a dad waiting outside A&E. Either get it DONE or stop feeding me crumbs. PSG tax is real, my patience is fake, and I’m ready to believe any nonsense. Up the Reds.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
