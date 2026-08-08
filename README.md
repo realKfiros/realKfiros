@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** F5 merchant, clinically unwell<br />
-**YNWA intensity:** 92%<br />
-**Take:** This “Barcola next week contacts” stuff has me pacing like a dad waiting outside A&E. Either get it DONE or stop feeding me crumbs. PSG tax is real, my patience is fake, and I’m ready to believe any nonsense. Up the Reds.
+**Mood:** PSG are doing my head in<br />
+**YNWA intensity:** 91%<br />
+**Take:** This Barcola stuff is pure “pay £170m or jog on” nonsense. If PSG want to ransom every winger on earth they can HOLD THAT. Either we land him for sane money or we move. No more begging. Edwards, end it or end them.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
