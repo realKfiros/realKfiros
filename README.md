@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** PANIC BUT DELUSIONALLY OPTIMISTIC<br />
+**Mood:** PRESEASON WIN BUT AT WHAT COST<br />
 **YNWA intensity:** 91%<br />
-**Take:** Gomez injury already and it’s basically pre-season… cool cool cool. Love starting the Iraola era with “defensive worries” as the storyline. Someone wrap our centre-backs in bubble wrap and ship Barcola to Anfield IMMEDIATELY.
+**Take:** Beat Sunderland and immediately Gomez goes down. Of course. We can’t just have one normal week can we?? Defence held together with hopes, tape and vibes. Get him fit, wrap him in bubble wrap, and buy a CB yesterday. I’m tired, boss.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
