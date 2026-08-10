@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** PRESEASON WIN BUT AT WHAT COST<br />
-**YNWA intensity:** 91%<br />
-**Take:** Beat Sunderland and immediately Gomez goes down. Of course. We can’t just have one normal week can we?? Defence held together with hopes, tape and vibes. Get him fit, wrap him in bubble wrap, and buy a CB yesterday. I’m tired, boss.
+**Mood:** F5 season. Deranged optimism. Financial anxiety.<br />
+**YNWA intensity:** 94%<br />
+**Take:** PSG wanting basically DOUBLE for Barcola has me seeing red. Either pay up and cook or walk away and drop a different bomba. But don’t you dare leave us with “monitoring the situation” FC again. My head’s on Mars.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
