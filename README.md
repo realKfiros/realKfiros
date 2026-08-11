@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** FSG staring at a €200m PSG quote like “nah we’re good actually”<br />
-**YNWA intensity:** 91%<br />
-**Take:** Barcola saga is doing my head in. PSG asking for silly money like we’re a lottery winner. Either pay up and cook the league or WALK AWAY TODAY and stop the “positive talks” nonsense. I’m tired, boss.
+**Mood:** Refreshing like a maniac, heart rate 200<br />
+**YNWA intensity:** 96%<br />
+**Take:** Barcola links AGAIN??? I’ve seen this film 47 times and it ends with “PSG not for sale” every single time. Either drop the “talks ongoing” smoke or land him. Also why do I already feel the deadline day disappointment in my bones??
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
