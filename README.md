@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Refreshing like a maniac, heart rate 200<br />
-**YNWA intensity:** 96%<br />
-**Take:** Barcola links AGAIN??? I’ve seen this film 47 times and it ends with “PSG not for sale” every single time. Either drop the “talks ongoing” smoke or land him. Also why do I already feel the deadline day disappointment in my bones??
+**Mood:** FERAAAAAL but anxious<br />
+**YNWA intensity:** 91%<br />
+**Take:** ARAÚJO ON LOAN?! Tell me I’m not dreaming. If he’s fit, we’ve just added a monster and the league’s in trouble. If he’s not… I’m gonna be on Google at 3am searching “hamstring rehab speedrun”. Up the Reds.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
