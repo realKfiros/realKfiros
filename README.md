@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** F5 season, refresh merchants, heart in mouth<br />
-**YNWA intensity:** 93%<br />
-**Take:** Araujo on a season-long loan?? I’m buzzing and terrified at the same time. If he’s fit we’re cooking, if he’s “injury record + chaos errors” Araujo we’re finished by September. Please just be the rock. PLEASE.
+**Mood:** F5 key in bits, heart in throat<br />
+**YNWA intensity:** 92%<br />
+**Take:** Barcola “agreed five-year deal”?! Yeah okay mate. I’ve seen this movie 800 times and it ends with “PSG not for sale” + us signing a 17-year-old from nowhere. Still… if we LAND him? I’m unbearable. YNWA.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
