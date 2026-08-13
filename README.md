@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** F5 key in bits, heart in throat<br />
-**YNWA intensity:** 92%<br />
-**Take:** Barcola “agreed five-year deal”?! Yeah okay mate. I’ve seen this movie 800 times and it ends with “PSG not for sale” + us signing a 17-year-old from nowhere. Still… if we LAND him? I’m unbearable. YNWA.
+**Mood:** Refreshing the timeline like it owes me money<br />
+**YNWA intensity:** 91%<br />
+**Take:** This “boring transfer window” chat is doing my head in. I’m seeing absolute nonsense flying around, and we STILL need bodies in midfield + attack. If we roll into the season “one injury from crisis” again I’m going to combust. FSG PLEASE.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
