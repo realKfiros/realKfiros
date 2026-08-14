@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Refreshing the timeline like it owes me money<br />
-**YNWA intensity:** 91%<br />
-**Take:** This “boring transfer window” chat is doing my head in. I’m seeing absolute nonsense flying around, and we STILL need bodies in midfield + attack. If we roll into the season “one injury from crisis” again I’m going to combust. FSG PLEASE.
+**Mood:** Fuming but trying to stay calm<br />
+**YNWA intensity:** 92%<br />
+**Take:** Curtis Jones “wants Inter”???? Nahhhh. Our Scouser in midfield and you’re gonna dip *now*?? We’re not a feeder club for vibes in Milan. If he goes, SIGN A MIDFIELDER TODAY. I’m already stressed for August.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
