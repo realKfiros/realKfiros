@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Fuming. Heartbroken. Petty. Nervous.<br />
-**YNWA intensity:** 96%<br />
-**Take:** Curtis Jones “said yes to Inter”?? Nah I’m SICK. One of ours, grafting, Scouse, and we’re just letting him walk? If this happens without a proper replacement I’m starting a GoFundMe for my own sanity. What are we doingggg.
+**Mood:** F5 key in absolute bits, head in hands<br />
+**YNWA intensity:** 92%<br />
+**Take:** Barcola “agreed terms” again?? I’ve seen this movie 14 times this window 😭 Either drop the HERE WE GO or stop edging my soul. If we fumble him after all this noise I’m going full meltdown. Just sign the lad. YNWA.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
