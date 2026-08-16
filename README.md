@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** F5 key in bits, head’s on Mars<br />
-**YNWA intensity:** 93%<br />
-**Take:** So Inter “making an offer” for Curtis Jones around €35m and we’re just… cool with that?? Love the lad but if he goes and we don’t replace him we’re one knock away from midfield terrorism. Get the cheque, then BUY A MIDFIELDER. NOW.
+**Mood:** SWEATING<br />
+**YNWA intensity:** 92%<br />
+**Take:** Curtis Jones to Inter?? Nah I’m not having it. Local lad, engine, proper red. If we sell him and don’t replace instantly we’re one knock away from a midfield held together by vibes and prayer. Tell Inter to jog on.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
