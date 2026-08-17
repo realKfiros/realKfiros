@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** SWEATING<br />
+**Mood:** F5 key in bits, head in bits<br />
 **YNWA intensity:** 92%<br />
-**Take:** Curtis Jones to Inter?? Nah I’m not having it. Local lad, engine, proper red. If we sell him and don’t replace instantly we’re one knock away from a midfield held together by vibes and prayer. Tell Inter to jog on.
+**Take:** Spurs “agreeing” a deal for Gakpo??? Nah I’m not having it. Not Cody. NOT to Tottenham. If we sell him then the Barcola fee better be paid in cash, in a briefcase, delivered to Anfield by PSG themselves. I’m stressed.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
