@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** FSG pls I’m on my knees<br />
+**Mood:** F5 key is fighting for its LIFE<br />
 **YNWA intensity:** 92%<br />
-**Take:** Spurs “agreeing” a Cody Gakpo deal??? Absolutely not. Not to them. I refuse. If we sell him and then “replace” with a £100m+ Barcola saga I’m going to evaporate. Keep Cody, sign the winger anyway, cheers.
+**Take:** PSG wanting £145m for Barcola??? Be serious. Either lower it or we move on, I beg. Also “multiple forwards” but we’re cool with defensive depth being vibes?? Iraola mate I’m already stressed and it’s AUGUST. Sign someone. Anyone.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
