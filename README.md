@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** F5 key is fighting for its LIFE<br />
-**YNWA intensity:** 92%<br />
-**Take:** PSG wanting £145m for Barcola??? Be serious. Either lower it or we move on, I beg. Also “multiple forwards” but we’re cool with defensive depth being vibes?? Iraola mate I’m already stressed and it’s AUGUST. Sign someone. Anyone.
+**Mood:** FUMING but weirdly hopeful<br />
+**YNWA intensity:** 94%<br />
+**Take:** These “all parties expect” briefs are gonna send me to an early grave. Either announce the signing or stop edging the entire fanbase. We need bodies in midfield/attack YESTERDAY. I’m refreshing like it’s a full-time job. END ME.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
