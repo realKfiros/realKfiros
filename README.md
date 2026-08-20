@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** FSG PLEASE STOP PLAYING GAMES<br />
+**Mood:** Fuming but laughing through it<br />
 **YNWA intensity:** 92%<br />
-**Take:** This Barcola saga stalling and us “agreeing terms” with an alternate PSG attacker… I’m gonna lose my head. Either drop the bag or move on, I can’t do another month of “positive talks” while everyone else cooks. Iraola needs bodies NOW.
+**Take:** We’re really heading into the season with ONE proper right-back and it’s Frimpong… and Bradley “way off”?? Brilliant. Absolutely brilliant. Can’t wait to watch us invent the position again with a winger and vibes. Sign someone NOW before I combust.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
