@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Transfer-window whiplash<br />
-**YNWA intensity:** 91%<br />
-**Take:** So we’re “dropping out” of one PSG winger chase then “agreeing terms” with another? My head’s spinning. Just SIGN someone who can rinse a fullback on Day 1. Iraola needs weapons, not vibes. FSG don’t you dare gaslight me again.
+**Mood:** FUMING but refresh-button addicted<br />
+**YNWA intensity:** 92%<br />
+**Take:** Barcola deal “stalls” and we’re “agreeing terms” with an “alternate” like it’s a Tesco meal deal. GET IT DONE or stop briefing the press, I’m on my 400th F5 and my head’s gone. Deadline Day’s gonna finish me.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
