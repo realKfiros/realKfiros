@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Fuming but laughing through it<br />
-**YNWA intensity:** 92%<br />
-**Take:** We’re really heading into the season with ONE proper right-back and it’s Frimpong… and Bradley “way off”?? Brilliant. Absolutely brilliant. Can’t wait to watch us invent the position again with a winger and vibes. Sign someone NOW before I combust.
+**Mood:** Transfer-window whiplash<br />
+**YNWA intensity:** 91%<br />
+**Take:** So we’re “dropping out” of one PSG winger chase then “agreeing terms” with another? My head’s spinning. Just SIGN someone who can rinse a fullback on Day 1. Iraola needs weapons, not vibes. FSG don’t you dare gaslight me again.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
