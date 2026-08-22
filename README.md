@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** FSG are playing Jenga with our midfield and laughing<br />
-**YNWA intensity:** 91%<br />
-**Take:** We’re 24 hours from the season and the Barcola saga is STILL doing laps while “alternate targets” get briefed like it’s a school project. Either back Iraola properly or don’t bother pretending. My head’s gone. YNWA but SIGN SOMEONE.
+**Mood:** FSG PLEASE I AM ON MY KNEES<br />
+**YNWA intensity:** 92%<br />
+**Take:** £50m bid for Minteh turned down AND he’s out for months?? Brilliant. Absolutely brilliant. We’re haggling in August like it’s a car boot sale while our squad depth is held together with tape. Sign someone NOW before my head falls off.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
