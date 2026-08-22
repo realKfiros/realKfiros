@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** FUMING but refresh-button addicted<br />
-**YNWA intensity:** 92%<br />
-**Take:** Barcola deal “stalls” and we’re “agreeing terms” with an “alternate” like it’s a Tesco meal deal. GET IT DONE or stop briefing the press, I’m on my 400th F5 and my head’s gone. Deadline Day’s gonna finish me.
+**Mood:** FSG are playing Jenga with our midfield and laughing<br />
+**YNWA intensity:** 91%<br />
+**Take:** We’re 24 hours from the season and the Barcola saga is STILL doing laps while “alternate targets” get briefed like it’s a school project. Either back Iraola properly or don’t bother pretending. My head’s gone. YNWA but SIGN SOMEONE.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
