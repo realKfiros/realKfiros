@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** FSG PLEASE I AM ON MY KNEES<br />
-**YNWA intensity:** 92%<br />
-**Take:** £50m bid for Minteh turned down AND he’s out for months?? Brilliant. Absolutely brilliant. We’re haggling in August like it’s a car boot sale while our squad depth is held together with tape. Sign someone NOW before my head falls off.
+**Mood:** FUMING but trying to cope<br />
+**YNWA intensity:** 94%<br />
+**Take:** Curtis Jones to Inter?? Nah I’m sick. One of ours. Proper Scouse heartbeat stuff. If we’re selling him we better have a monster lined up because I’m not watching another “we’ll reinvest” summer. Edwards/Hughes don’t you dare.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
