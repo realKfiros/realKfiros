@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** FUMING but trying to cope<br />
-**YNWA intensity:** 94%<br />
-**Take:** Curtis Jones to Inter?? Nah I’m sick. One of ours. Proper Scouse heartbeat stuff. If we’re selling him we better have a monster lined up because I’m not watching another “we’ll reinvest” summer. Edwards/Hughes don’t you dare.
+**Mood:** FUMING but delusionally optimistic<br />
+**YNWA intensity:** 91%<br />
+**Take:** Curtis Jones to Inter for £30m mid-August?? Are we actually doing this right before the season starts?? Our midfield depth is already hanging by dental floss. Love the lad, but if we sell him and don’t replace… I’m camping outside AXA with a megaphone.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
