@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** FSG pls I’m on my knees<br />
-**YNWA intensity:** 89%<br />
-**Take:** So we’ve just had a £50m bid for Yankuba Minteh knocked back AND he’s allegedly out for months… and we’re still “looking” for wide options?? This club loves a deadline day panic. Iraola’s first league game and we’re already patching tape on the squad. I’m stressed.
+**Mood:** F5 merchant. Nervous wreck. Delusion loading.<br />
+**YNWA intensity:** 93%<br />
+**Take:** This “Paris to Liverpool tonight” stuff has me pacing like it’s deadline day in AUGUST. Either Barcola’s on a plane or we’re being edged by ITKs again. If this ends up another “medical booked” hallucination I’m deleting the internet.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
