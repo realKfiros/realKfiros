@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** FUMING but delusionally optimistic<br />
-**YNWA intensity:** 91%<br />
-**Take:** Curtis Jones to Inter for £30m mid-August?? Are we actually doing this right before the season starts?? Our midfield depth is already hanging by dental floss. Love the lad, but if we sell him and don’t replace… I’m camping outside AXA with a megaphone.
+**Mood:** FSG pls I’m on my knees<br />
+**YNWA intensity:** 89%<br />
+**Take:** So we’ve just had a £50m bid for Yankuba Minteh knocked back AND he’s allegedly out for months… and we’re still “looking” for wide options?? This club loves a deadline day panic. Iraola’s first league game and we’re already patching tape on the squad. I’m stressed.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
