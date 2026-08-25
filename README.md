@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** F5 merchant. Nervous wreck. Delusion loading.<br />
+**Mood:** Fuming but delusionally optimistic<br />
 **YNWA intensity:** 93%<br />
-**Take:** This “Paris to Liverpool tonight” stuff has me pacing like it’s deadline day in AUGUST. Either Barcola’s on a plane or we’re being edged by ITKs again. If this ends up another “medical booked” hallucination I’m deleting the internet.
+**Take:** Curtis Jones to Inter for £30m?? Are we actually doing this DAYS before the season starts? Selling our own midfield legs and praying vibes cover it. One knock and we’re playing kids + hope. Edwards/Hughes please I beg, don’t galaxy-brain this.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
