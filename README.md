@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Fuming but delusionally optimistic<br />
+**Mood:** IT’S AUGUST AND MY HEAD’S ALREADY ON FIRE<br />
 **YNWA intensity:** 93%<br />
-**Take:** Curtis Jones to Inter for £30m?? Are we actually doing this DAYS before the season starts? Selling our own midfield legs and praying vibes cover it. One knock and we’re playing kids + hope. Edwards/Hughes please I beg, don’t galaxy-brain this.
+**Take:** 2-2 at Newcastle to open the league and I’m already pacing like it’s April. We score, we wobble, we score again, we wobble AGAIN. Iraola-ball better come with a free stress test. Win the next one or I’m going full conspiracy.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
