@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** F5 key is broken, head is gone<br />
-**YNWA intensity:** 91%<br />
-**Take:** Barcola “principle of agreement” but PSG want a madness fee… here we go again. Either back it and get it DONE or stop feeding me crumbs at 2am. We need pace and chaos up top NOW. Don’t you dare bottle this, lads.
+**Mood:** WE’RE BACK BUT ALSO WHY AM I SWEATING IN AUGUST<br />
+**YNWA intensity:** 92%<br />
+**Take:** 2-2 at Newcastle and needing a stoppage-time pen to nick a point… first game and my heart’s already doing HIIT. Szobo ice-cold, love that. But can we please stop doing “character” and start doing “control”?? Title charge my head is gone.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
