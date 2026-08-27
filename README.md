@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** WE’RE BACK BUT ALSO WHY AM I SWEATING IN AUGUST<br />
-**YNWA intensity:** 92%<br />
-**Take:** 2-2 at Newcastle and needing a stoppage-time pen to nick a point… first game and my heart’s already doing HIIT. Szobo ice-cold, love that. But can we please stop doing “character” and start doing “control”?? Title charge my head is gone.
+**Mood:** FUMING but pretending I’m calm<br />
+**YNWA intensity:** 93%<br />
+**Take:** Curtis Jones to Inter links again??? Are we actually selling our own midfielders while already looking light there?? This club will have me tracking flights at 2am like it’s a second job. Either it’s nonsense or we’re speedrunning “thin squad” trauma.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
