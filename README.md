@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Sick to my stomach<br />
-**YNWA intensity:** 97%<br />
-**Take:** Chiesa out injured and it’s late August. Late. AUGUST. Why does this club insist on living on the edge like it’s a personality trait??? Get him fit, wrap him in bubble wrap, and sign SOMEONE before my head falls off. YNWA but I’m panicking.
+**Mood:** FSG please I’m on my knees<br />
+**YNWA intensity:** 94%<br />
+**Take:** So we’re “pressing” to sign ANOTHER winger (Minteh) while the midfield is held together with prayers and ibuprofen?? Are we collecting right-sided attackers like Pokémon?? Fix the engine room or we’re gonna be a vibes club by October. YNWA tho.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
