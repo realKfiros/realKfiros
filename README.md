@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** F5 key in absolute bits<br />
-**YNWA intensity:** 92%<br />
-**Take:** Barcola “still prioritized” while PSG are basically dangling a £145m price tag and the window’s closing… classic LFC edging. Either pay up or MOVE ON. I can’t do another “monitoring the situation” summer. Sign the winger. Now.
+**Mood:** F5 key in a headlock<br />
+**YNWA intensity:** 97%<br />
+**Take:** This Barcola “next 24-48 hours” stuff is gonna finish me. Either drop the fee and get him in red TODAY or stop teasing us like it’s a Netflix trailer. I can’t do another window of edging while our rivals actually sign humans.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
