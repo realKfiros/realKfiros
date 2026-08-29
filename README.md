@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** F5 key in a headlock<br />
-**YNWA intensity:** 97%<br />
-**Take:** This Barcola “next 24-48 hours” stuff is gonna finish me. Either drop the fee and get him in red TODAY or stop teasing us like it’s a Netflix trailer. I can’t do another window of edging while our rivals actually sign humans.
+**Mood:** F5 key in bits. Heart rate 200. Window panic setting in.<br />
+**YNWA intensity:** 91%<br />
+**Take:** So we’re “pressing” for Yankuba Minteh in deadline week… ANOTHER winger chase while we’re still screaming for balance? I’m backing the club but this feels like we’re buying vibes and hoping it fixes structure. Please just be real and get it DONE.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
