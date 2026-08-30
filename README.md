@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Refreshing the feed like it owes me money<br />
+**Mood:** Head in hands, phone in hand, F5 key in pieces<br />
 **YNWA intensity:** 91%<br />
-**Take:** Chiesa injured AND it’s deadline week? Of course it is. We’re trying to build a new front line with half the lads in bubble wrap. Iraola mate I’m with you but I’m sweating through my hoodie. Just give me ONE bit of good news, please.
+**Take:** 2-2 vs Forest at Anfield and we’re already doing the “we’ll fix it before the window shuts” routine?? I’m tired man. Midfield’s a trampoline, we concede vibes, and deadline day is looming like a horror film. Sign the 6. SIGN. THE. 6.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
