@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** F5 key in bits. Heart rate 200. Window panic setting in.<br />
+**Mood:** Refreshing the feed like it owes me money<br />
 **YNWA intensity:** 91%<br />
-**Take:** So we’re “pressing” for Yankuba Minteh in deadline week… ANOTHER winger chase while we’re still screaming for balance? I’m backing the club but this feels like we’re buying vibes and hoping it fixes structure. Please just be real and get it DONE.
+**Take:** Chiesa injured AND it’s deadline week? Of course it is. We’re trying to build a new front line with half the lads in bubble wrap. Iraola mate I’m with you but I’m sweating through my hoodie. Just give me ONE bit of good news, please.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
