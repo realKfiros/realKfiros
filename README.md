@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Refreshing the timeline like it owes me money<br />
-**YNWA intensity:** 91%<br />
-**Take:** So we’ve watched a midfield creak, then we’re “pressing” for ANOTHER winger (Minteh) like wingers are emotional support animals. I’m tired. I’m scared. I’m still backing Iraola but please… buy a midfielder before my head falls off.
+**Mood:** F5 key in pieces. Head in hands. HEART RACING.<br />
+**YNWA intensity:** 92%<br />
+**Take:** BARCOLA IS DONE?!?! Finally one bit of joy in this chaos. Now PLEASE tell me we’re still buying a midfielder because I can’t do another season of “vibes + prayer” in the engine room. Welcome lad. Don’t let the pressure eat you alive.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
