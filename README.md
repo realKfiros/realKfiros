@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Head in hands, phone in hand, F5 key in pieces<br />
+**Mood:** Refreshing the timeline like it owes me money<br />
 **YNWA intensity:** 91%<br />
-**Take:** 2-2 vs Forest at Anfield and we’re already doing the “we’ll fix it before the window shuts” routine?? I’m tired man. Midfield’s a trampoline, we concede vibes, and deadline day is looming like a horror film. Sign the 6. SIGN. THE. 6.
+**Take:** So we’ve watched a midfield creak, then we’re “pressing” for ANOTHER winger (Minteh) like wingers are emotional support animals. I’m tired. I’m scared. I’m still backing Iraola but please… buy a midfielder before my head falls off.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
