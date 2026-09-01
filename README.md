@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** F5 key in pieces. Head in hands. HEART RACING.<br />
-**YNWA intensity:** 92%<br />
-**Take:** BARCOLA IS DONE?!?! Finally one bit of joy in this chaos. Now PLEASE tell me we’re still buying a midfielder because I can’t do another season of “vibes + prayer” in the engine room. Welcome lad. Don’t let the pressure eat you alive.
+**Mood:** FSG PLEASE I’M ON MY KNEES<br />
+**YNWA intensity:** 93%<br />
+**Take:** Deadline day and we’re “one injury from a crisis” while Jones to Inter is floating about?? Cool cool cool. Love running a title chase like a thrift shop. Buy bodies. REAL bodies. I can’t do another season of “we’ll cope.”
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
