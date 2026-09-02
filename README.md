@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** WE’RE DOING THIS AGAIN???<br />
-**YNWA intensity:** 91%<br />
-**Take:** Another 2-2 at Anfield vs Forest and I’m already aging in dog years. Late rescue point FC is back. We’re creating chaos, conceding vibes, and living off last-minute heroics. Iraola mate I beg… stability. My heart can’t do this till May.
+**Mood:** Deadline Day delirium<br />
+**YNWA intensity:** 92%<br />
+**Take:** Bradley Barcola IN and I’m buzzing… but why do we still feel one thin squad tweak away from absolute chaos?? Get the outgoings sorted, get bodies in, and stop playing transfer Jenga with my blood pressure. YNWA but I’m sweating.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
