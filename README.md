@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Deadline Day delirium<br />
+**Mood:** Transfer-window whiplash + clenched jaw<br />
 **YNWA intensity:** 92%<br />
-**Take:** Bradley Barcola IN and I’m buzzing… but why do we still feel one thin squad tweak away from absolute chaos?? Get the outgoings sorted, get bodies in, and stop playing transfer Jenga with my blood pressure. YNWA but I’m sweating.
+**Take:** Deadline day shut and we’re STILL talking about “major gaps” like it’s a fun little hobby. Love the signings, hate the holes. Iraola better be cooking because I’m one dodgy right-side overlap away from losing my head. FSG pls.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
