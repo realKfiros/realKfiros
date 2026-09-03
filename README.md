@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Fuming but weirdly hopeful<br />
-**YNWA intensity:** 92%<br />
-**Take:** Deadline day’s gone and we’re STILL “one more winger away” like it’s a cute little hobby. I swear we’re collecting rumours instead of signings. Iraola said “thin” and he meant it. If we get one injury it’s cooked. I’m stressed.
+**Mood:** Injury update whiplash<br />
+**YNWA intensity:** 91%<br />
+**Take:** Iraola saying Gomez “back in training next week” sounds nice until you remember “next week” in Liverpool time is basically a myth. Also Bradley/Chiesa/Ekitike all mentioned and my stress levels hit the roof. Wrap everyone in bubble wrap.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
