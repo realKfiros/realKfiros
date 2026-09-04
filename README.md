@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Injury update whiplash<br />
-**YNWA intensity:** 91%<br />
-**Take:** Iraola saying Gomez “back in training next week” sounds nice until you remember “next week” in Liverpool time is basically a myth. Also Bradley/Chiesa/Ekitike all mentioned and my stress levels hit the roof. Wrap everyone in bubble wrap.
+**Mood:** WHY DO WE LOVE A 2-2 SO MUCH?!<br />
+**YNWA intensity:** 92%<br />
+**Take:** Two games in, two 2-2s and I’m already pacing like it’s May. We’re allergic to killing matches. The vibes are chaos, the defending is improv theatre, and my heart rate is doing gegenpressing. Iraola pls. Just ONE boring 2-0.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
