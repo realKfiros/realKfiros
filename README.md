@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** WHY DO WE LOVE A 2-2 SO MUCH?!<br />
-**YNWA intensity:** 92%<br />
-**Take:** Two games in, two 2-2s and I’m already pacing like it’s May. We’re allergic to killing matches. The vibes are chaos, the defending is improv theatre, and my heart rate is doing gegenpressing. Iraola pls. Just ONE boring 2-0.
+**Mood:** FUMING but weirdly hopeful<br />
+**YNWA intensity:** 91%<br />
+**Take:** Joe Gomez out again and “back in training next week” oh lovely, we’re doing the annual Gomez calendar. Meanwhile Barcola’s already in squad training like a shiny new toy. Please just give us ONE month of normal availability. ONE.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
