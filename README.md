@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** FUMING but weirdly hopeful<br />
+**Mood:** Fuming but delusionally hopeful<br />
 **YNWA intensity:** 91%<br />
-**Take:** Joe Gomez out again and “back in training next week” oh lovely, we’re doing the annual Gomez calendar. Meanwhile Barcola’s already in squad training like a shiny new toy. Please just give us ONE month of normal availability. ONE.
+**Take:** PSG wanting £145m for Barcola is actually comedy. We’re not paying “keep-him” prices for a lad they don’t even want to sell properly. Either drop it or MOVE ON. We can’t spend all week refreshing and end up with “market opportunity” tweets again.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
