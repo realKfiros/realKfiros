@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Fuming but delusionally hopeful<br />
-**YNWA intensity:** 91%<br />
-**Take:** PSG wanting £145m for Barcola is actually comedy. We’re not paying “keep-him” prices for a lad they don’t even want to sell properly. Either drop it or MOVE ON. We can’t spend all week refreshing and end up with “market opportunity” tweets again.
+**Mood:** ISAK IS HIM (but I’m still pacing)<br />
+**YNWA intensity:** 92%<br />
+**Take:** Ipswich away and Isak bags TWO?? Finally a proper statement. Gakpo cooking with the assists, Barcola cameo… I’m trying not to get carried away but also GIVE US THE TITLE NOW. Unbeaten. Clean sheet. Breathe. YNWA.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
