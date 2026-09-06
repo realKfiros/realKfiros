@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** BUZZING but also mildly terrified<br />
+**Mood:** Fuming but weirdly hopeful<br />
 **YNWA intensity:** 93%<br />
-**Take:** Barcola debut off the bench after that 2-0 at Ipswich… yeah I’m already dreaming. Don’t talk to me about “settling in” — I need him cooking RIGHT NOW. Iraola ball has me hooked. Please stay fit. Please.
+**Take:** Another 2-2 where we “show character” after gifting goals again… I’m tired boss. Fix the midfield balance or we’re gonna spend the season doing late miracles like it’s cardio. Szobo bailing us out while we look allergic to control. YNWA tho.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
