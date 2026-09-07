@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** WE’RE COLLECTING FORWARDS LIKE POKÉMON AND I STILL FEEL ONE MIDFIELDER INJURY AWAY FROM THE ABYSS<br />
+**Mood:** WE’VE GOT ISAK AND I’M NOT CALM ABOUT IT<br />
 **YNWA intensity:** 92%<br />
-**Take:** Barcola rocking up and instantly being THE discourse is peak Liverpool. £123m bench cameo energy. Either he cooks and we all pretend we were calm, or I’m live-tweeting my collapse by October. Up the Reds, I’m terrified.
+**Take:** Isak bagging two and Gakpo teeing them up like it’s FIFA… I’m sorry but that’s disgusting. Unbeaten, 5 points from 3, Barcola cameo… the vibes are BACK. Now please Liverpool, don’t follow this with a random 0-0 where we forget how to pass.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
