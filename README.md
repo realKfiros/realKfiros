@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** WE’VE GOT ISAK AND I’M NOT CALM ABOUT IT<br />
-**YNWA intensity:** 92%<br />
-**Take:** Isak bagging two and Gakpo teeing them up like it’s FIFA… I’m sorry but that’s disgusting. Unbeaten, 5 points from 3, Barcola cameo… the vibes are BACK. Now please Liverpool, don’t follow this with a random 0-0 where we forget how to pass.
+**Mood:** BUZZING but still suspicious<br />
+**YNWA intensity:** 86%<br />
+**Take:** Isak bagging two at Ipswich??? Yeah I’ve seen enough. That’s a proper No.9 performance. Gakpo feeding him like it’s nothing. Unbeaten, 5 points, Barcola debut… and I’m STILL pacing like we’re 2-0 down. Up the Reds.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
