@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** WE ARE SO BACK (but I’m still pacing)<br />
-**YNWA intensity:** 92%<br />
-**Take:** Isak scoring TWO at Ipswich?? Yeah ok, hello statement win. Gakpo feeding him like it’s a cheat code. Unbeaten, points on the board, vibes UP. Now please… can we stop collecting injuries like Pokémon before Atleti 😭
+**Mood:** Buzzing but still glaring at the midfield depth<br />
+**YNWA intensity:** 91%<br />
+**Take:** 2-0 away at Ipswich and Barcola debut?? Lovely. But Iraola saying we won’t pay “crazy money” for fixes has me STRESSED. One knock in midfield and we’re playing vibes + prayers. Up the Reds anyway.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
