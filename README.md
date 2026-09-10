@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** WE CAN’T HAVE NICE THINGS<br />
-**YNWA intensity:** 92%<br />
-**Take:** Barcola “no proper injury” but niggles in BOTH adductors and Kerkez forced off too… after a 2-1 comeback vs Atleti. Love the win, hate the body count. It’s September and we’re already rationing hamstrings like it’s wartime.
+**Mood:** STILL BUZZING BUT READY TO PANIC IN 0.3 SECONDS<br />
+**YNWA intensity:** 91%<br />
+**Take:** Comeback win vs Atlético in the CL and now everyone’s acting calm?? Nah. That’s the kind of night that either launches a season or tricks you into hope. I’m addicted to the chaos. Keep doing this, Reds. Don’t you DARE tease me.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
