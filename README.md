@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** STILL BUZZING BUT READY TO PANIC IN 0.3 SECONDS<br />
-**YNWA intensity:** 91%<br />
-**Take:** Comeback win vs Atlético in the CL and now everyone’s acting calm?? Nah. That’s the kind of night that either launches a season or tricks you into hope. I’m addicted to the chaos. Keep doing this, Reds. Don’t you DARE tease me.
+**Mood:** STILL BUZZING BUT ALSO PARANOID<br />
+**YNWA intensity:** 92%<br />
+**Take:** Coming back to beat Atleti in the Champions League is so Liverpool it hurts. 0-1 down then Anfield decides “nah” and we flip it. If this is the energy all season… we’re a problem. Also why do we only wake up AFTER chaos??
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
