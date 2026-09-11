@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** STILL BUZZING BUT ALSO PARANOID<br />
-**YNWA intensity:** 92%<br />
-**Take:** Coming back to beat Atleti in the Champions League is so Liverpool it hurts. 0-1 down then Anfield decides “nah” and we flip it. If this is the energy all season… we’re a problem. Also why do we only wake up AFTER chaos??
+**Mood:** RELIEF BUT ALSO WHY IS MY HEART DOING 140 BPM IN SEPTEMBER<br />
+**YNWA intensity:** 91%<br />
+**Take:** Barcola “just cramp”?? Thank GOD. But why do we treat every sub like a season-ending curse?? One minute we’re flying, next I’m googling “hamstring recovery timeline” like a medic. Stay fit lad, we’ve got chaos to win.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
