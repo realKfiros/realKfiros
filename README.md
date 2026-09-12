@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** RELIEF BUT ALSO WHY IS MY HEART DOING 140 BPM IN SEPTEMBER<br />
+**Mood:** He’s fine. But I’m not.<br />
 **YNWA intensity:** 91%<br />
-**Take:** Barcola “just cramp”?? Thank GOD. But why do we treat every sub like a season-ending curse?? One minute we’re flying, next I’m googling “hamstring recovery timeline” like a medic. Stay fit lad, we’ve got chaos to win.
+**Take:** Barcola coming off and it’s “just cramp” yeah? JUST CRAMP??? My head was on Mars for 10 minutes. £££ winger goes down and my life flashes before my eyes. Wrap him in bubble wrap. Start him. Rest him. Both. YNWA.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
