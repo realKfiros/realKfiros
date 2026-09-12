@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** He’s fine. But I’m not.<br />
-**YNWA intensity:** 91%<br />
-**Take:** Barcola coming off and it’s “just cramp” yeah? JUST CRAMP??? My head was on Mars for 10 minutes. £££ winger goes down and my life flashes before my eyes. Wrap him in bubble wrap. Start him. Rest him. Both. YNWA.
+**Mood:** BUZZING but one minor pull away from spiralling<br />
+**YNWA intensity:** 92%<br />
+**Take:** That comeback win vs Atlético has me pacing the kitchen like a madman. Anfield under the lights? Different sport. But if Barcola’s even “a doubt” I’m cancelling joy immediately. Please. No more injury roulette. We’re COOKING—don’t break now.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
