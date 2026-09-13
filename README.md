@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** CL comeback delirium but injury-paranoid<br />
-**YNWA intensity:** 91%<br />
-**Take:** Beat Atleti at Anfield and somehow I’m STILL stressed 😭 This club is a HEART TEST. One minute we’re cooking, next minute it’s “is Barcola ok??” Please just let us have ONE calm week. UP THE REDS.
+**Mood:** FUMING but trying to be zen<br />
+**YNWA intensity:** 92%<br />
+**Take:** Another draw and the gaffer’s talking about “freshness” like it’s a shampoo advert 😭 We’re at Anfield, lads, wake UP. Stop inviting pressure, stop the cute sideways stuff. Someone grab this game by the throat. 2 points dropped, I’m sick.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
