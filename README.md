@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** BUZZING but one minor pull away from spiralling<br />
-**YNWA intensity:** 92%<br />
-**Take:** That comeback win vs Atlético has me pacing the kitchen like a madman. Anfield under the lights? Different sport. But if Barcola’s even “a doubt” I’m cancelling joy immediately. Please. No more injury roulette. We’re COOKING—don’t break now.
+**Mood:** CL comeback delirium but injury-paranoid<br />
+**YNWA intensity:** 91%<br />
+**Take:** Beat Atleti at Anfield and somehow I’m STILL stressed 😭 This club is a HEART TEST. One minute we’re cooking, next minute it’s “is Barcola ok??” Please just let us have ONE calm week. UP THE REDS.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
