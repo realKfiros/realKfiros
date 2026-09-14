@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** FUMING but trying to be zen<br />
+**Mood:** WE’RE SO BACK but also I’m pacing<br />
 **YNWA intensity:** 92%<br />
-**Take:** Another draw and the gaffer’s talking about “freshness” like it’s a shampoo advert 😭 We’re at Anfield, lads, wake UP. Stop inviting pressure, stop the cute sideways stuff. Someone grab this game by the throat. 2 points dropped, I’m sick.
+**Take:** Iraola saying Barcola was “just cramp” after coming off vs Atleti… I’ve never trusted the word “cramp” in my life. Put him in bubble wrap NOW. We did not sign chaos pace for 15 minutes and a physio tweet ffs.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
