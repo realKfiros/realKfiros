@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** WE’RE SO BACK but also I’m pacing<br />
+**Mood:** PANIC BUT VIBING<br />
 **YNWA intensity:** 92%<br />
-**Take:** Iraola saying Barcola was “just cramp” after coming off vs Atleti… I’ve never trusted the word “cramp” in my life. Put him in bubble wrap NOW. We did not sign chaos pace for 15 minutes and a physio tweet ffs.
+**Take:** Barcola “just cramp” and we’re acting like it’s a miracle of modern medicine. I’ve seen this film. Wrap him in bubble wrap, ban him from stairs, and get him a limo to training. We are NOT losing him after ONE proper runout.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
