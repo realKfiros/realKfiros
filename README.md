@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** STILL BUZZING but also permanently on edge<br />
+**Mood:** IT’S NEVER QUIET IS IT<br />
 **YNWA intensity:** 91%<br />
-**Take:** Isak bagging TWO at Ipswich has me believing again. Proper No.9 behaviour. Gakpo feeding him like it’s NOTHING. If we actually keep this combo fit we’re cooking. Don’t you dare wake me up from this dream.
+**Take:** Barcola “just cramp” apparently… yeah sound… except we’ve all watched this movie before and it ends with 6 weeks out and me staring at the physio room like it’s a horror film. Please. Please just be cramp. I’m begging.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
