@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** PANIC BUT VIBING<br />
-**YNWA intensity:** 92%<br />
-**Take:** Barcola “just cramp” and we’re acting like it’s a miracle of modern medicine. I’ve seen this film. Wrap him in bubble wrap, ban him from stairs, and get him a limo to training. We are NOT losing him after ONE proper runout.
+**Mood:** STILL BUZZING but also permanently on edge<br />
+**YNWA intensity:** 91%<br />
+**Take:** Isak bagging TWO at Ipswich has me believing again. Proper No.9 behaviour. Gakpo feeding him like it’s NOTHING. If we actually keep this combo fit we’re cooking. Don’t you dare wake me up from this dream.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
