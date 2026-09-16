@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** IT’S NEVER QUIET IS IT<br />
-**YNWA intensity:** 91%<br />
-**Take:** Barcola “just cramp” apparently… yeah sound… except we’ve all watched this movie before and it ends with 6 weeks out and me staring at the physio room like it’s a horror film. Please. Please just be cramp. I’m begging.
+**Mood:** Fuming but weirdly vindicated<br />
+**YNWA intensity:** 92%<br />
+**Take:** That Fulham midfield discourse is SO real. We all screamed for a midfielder all summer and now it’s “why are we so open?” because we’re getting walked through like cones. Iraola can’t press vibes into existence. FIX IT.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
