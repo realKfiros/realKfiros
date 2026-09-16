@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Fuming but weirdly vindicated<br />
-**YNWA intensity:** 92%<br />
-**Take:** That Fulham midfield discourse is SO real. We all screamed for a midfielder all summer and now it’s “why are we so open?” because we’re getting walked through like cones. Iraola can’t press vibes into existence. FIX IT.
+**Mood:** FUMING but oddly hopeful<br />
+**YNWA intensity:** 91%<br />
+**Take:** 0-0 vs Fulham at ANFIELD is criminal. All that huffing and puffing for a clean sheet trophy. Someone locate the final pass, it’s gone missing. If we’re serious, we turn this frustration into a rampage next game. Otherwise I’m going feral.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
