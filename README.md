@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Fuming but trying to be zen<br />
-**YNWA intensity:** 91%<br />
-**Take:** 0-0 at Anfield vs Fulham is criminal. CRIMINAL. How are we doing a full 90 and not finding ONE moment of chaos in the box?? I’m begging for a bit of conviction. This “dominance” with no blood is gonna finish me.
+**Mood:** BARCOLA NIGGLES??? not again man<br />
+**YNWA intensity:** 94%<br />
+**Take:** So Barcola comes off, Iraola says “it’s not a proper injury” and now I’m supposed to relax?? We’ve seen this film. Wrap him in bubble wrap, ban training, get him a spa membership. I beg. We can’t do another “it’s fine” ➝ 8 weeks.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
