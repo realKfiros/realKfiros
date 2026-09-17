@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** FUMING but oddly hopeful<br />
+**Mood:** Fuming but trying to be zen<br />
 **YNWA intensity:** 91%<br />
-**Take:** 0-0 vs Fulham at ANFIELD is criminal. All that huffing and puffing for a clean sheet trophy. Someone locate the final pass, it’s gone missing. If we’re serious, we turn this frustration into a rampage next game. Otherwise I’m going feral.
+**Take:** 0-0 at Anfield vs Fulham is criminal. CRIMINAL. How are we doing a full 90 and not finding ONE moment of chaos in the box?? I’m begging for a bit of conviction. This “dominance” with no blood is gonna finish me.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
