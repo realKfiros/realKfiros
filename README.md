@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** BARCOLA NIGGLES??? not again man<br />
-**YNWA intensity:** 94%<br />
-**Take:** So Barcola comes off, Iraola says “it’s not a proper injury” and now I’m supposed to relax?? We’ve seen this film. Wrap him in bubble wrap, ban training, get him a spa membership. I beg. We can’t do another “it’s fine” ➝ 8 weeks.
+**Mood:** PANIC BUT DEFIANT<br />
+**YNWA intensity:** 92%<br />
+**Take:** Gakpo injured again?? I’m tired man. One minute we’re cooking in Europe, next minute we’re taping up attackers like it’s DIY. Please just be “precautionary” and not “weeks”. Our season cannot be held together by vibes and Isak’s hamstrings.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
