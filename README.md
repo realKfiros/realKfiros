@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** PANIC BUT DEFIANT<br />
-**YNWA intensity:** 92%<br />
-**Take:** Gakpo injured again?? I’m tired man. One minute we’re cooking in Europe, next minute we’re taping up attackers like it’s DIY. Please just be “precautionary” and not “weeks”. Our season cannot be held together by vibes and Isak’s hamstrings.
+**Mood:** WE’RE ALLERGIC TO SCORING AT ANFIELD AGAIN???<br />
+**YNWA intensity:** 91%<br />
+**Take:** 0-0 with Fulham at home has me pacing like it’s a cup final. Three draws already and it’s September ffs. Someone please finish a chance before my head falls off. Still unbeaten tho… but UNBEATEN FC isn’t a trophy.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
