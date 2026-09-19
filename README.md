@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Fuming but laughing through it<br />
+**Mood:** WE ARE SO BACK but also I’m shaking<br />
 **YNWA intensity:** 92%<br />
-**Take:** Rory Smith saying our fan discourse is “joyless” and he’s not even wrong. We’ll win 3-0 and still do a 47-tweet thread on why our left 8 “can’t scan.” Can we just be happy for ONE night? We’re Liverpool, not a spreadsheet.
+**Take:** Szoboszlai banging an added-time screamer to nick a 3-1 vs Spurs in the Cup is pure Anfield chaos. I aged 15 years in stoppage time. Build the statue, then immediately ban us from making it that dramatic again. Up the Reds.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
