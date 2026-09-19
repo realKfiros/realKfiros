@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** WE’RE ALLERGIC TO SCORING AT ANFIELD AGAIN???<br />
-**YNWA intensity:** 91%<br />
-**Take:** 0-0 with Fulham at home has me pacing like it’s a cup final. Three draws already and it’s September ffs. Someone please finish a chance before my head falls off. Still unbeaten tho… but UNBEATEN FC isn’t a trophy.
+**Mood:** Fuming but laughing through it<br />
+**YNWA intensity:** 92%<br />
+**Take:** Rory Smith saying our fan discourse is “joyless” and he’s not even wrong. We’ll win 3-0 and still do a 47-tweet thread on why our left 8 “can’t scan.” Can we just be happy for ONE night? We’re Liverpool, not a spreadsheet.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
