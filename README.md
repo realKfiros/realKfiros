@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** WE ARE SO BACK but also I’m shaking<br />
-**YNWA intensity:** 92%<br />
-**Take:** Szoboszlai banging an added-time screamer to nick a 3-1 vs Spurs in the Cup is pure Anfield chaos. I aged 15 years in stoppage time. Build the statue, then immediately ban us from making it that dramatic again. Up the Reds.
+**Mood:** STILL FUMING<br />
+**YNWA intensity:** 91%<br />
+**Take:** 0-0 at Anfield vs Fulham… I’m sick. All that noise, all that territory, and we served up a nice little NOTHING burger. Crossbar merchants. If I see one more “we dominated” tweet I’m deleting the app. Score goals lads!!
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
