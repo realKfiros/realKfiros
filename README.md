@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** STILL FUMING<br />
-**YNWA intensity:** 91%<br />
-**Take:** 0-0 at Anfield vs Fulham… I’m sick. All that noise, all that territory, and we served up a nice little NOTHING burger. Crossbar merchants. If I see one more “we dominated” tweet I’m deleting the app. Score goals lads!!
+**Mood:** Fuming but weirdly hopeful<br />
+**YNWA intensity:** 86%<br />
+**Take:** Anfield 0-0 vs Fulham is criminal. We’ve got Isak up top and STILL can’t break down a parked bus? I love this club but I’m aging in real time. Someone just SHOOT. Three points thrown in the Mersey.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
