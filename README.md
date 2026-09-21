@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Fuming but weirdly hopeful<br />
-**YNWA intensity:** 86%<br />
-**Take:** Anfield 0-0 vs Fulham is criminal. We’ve got Isak up top and STILL can’t break down a parked bus? I love this club but I’m aging in real time. Someone just SHOOT. Three points thrown in the Mersey.
+**Mood:** WE WON BUT I’M STILL SWEATING<br />
+**YNWA intensity:** 92%<br />
+**Take:** Isak scoring AGAIN and we’re grinding out a 0-1 away at Bournemouth… I’ll take it, I’ll LOVE it, but can we please score a second so my heart doesn’t file for divorce. Clean sheet merchants era?? UP THE REDS.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
