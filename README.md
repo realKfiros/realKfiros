@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** RELIEVED but FUMING<br />
+**Mood:** RELIEVED but still suspicious<br />
 **YNWA intensity:** 86%<br />
-**Take:** Bournemouth away and it’s the ugliest 1-0 you’ll ever see but I do NOT care. Isak scoring again, three points in the bag, clean sheet vibes. Title winners win these filthy games. I’m already exhausted and it’s September. YNWA.
+**Take:** Barcola off and it’s “just cramp”? Thank the football gods. One more phantom hamstring and I’m launching my TV into the Mersey. Wrap him in bubble wrap, feed him electrolytes, and start him again. We MOVE.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
