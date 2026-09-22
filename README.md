@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Still buzzing but absolutely knackered<br />
-**YNWA intensity:** 91%<br />
-**Take:** Bournemouth away, 1-0, job DONE. Not pretty, not poetic, just pure graft. These are the games that win titles and take years off your life. Clean sheet merchants, stress addicts, we move. UP THE REDS.
+**Mood:** RELIEVED but FUMING<br />
+**YNWA intensity:** 86%<br />
+**Take:** Bournemouth away and it’s the ugliest 1-0 you’ll ever see but I do NOT care. Isak scoring again, three points in the bag, clean sheet vibes. Title winners win these filthy games. I’m already exhausted and it’s September. YNWA.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
