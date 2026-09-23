@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** RELIEVED but absolutely fuming we can’t just win normally<br />
+**Mood:** Still buzzing but also one hamstring away from crisis<br />
 **YNWA intensity:** 92%<br />
-**Take:** Bournemouth away, 1-0, proper grimy stuff. That’s champions’ behaviour… but why am I sweating for 90 minutes like it’s a hostage situation? Isak scoring then everyone turning into bricklayers. I’ll take it. Keep grinding. Up the Reds.
+**Take:** Bournemouth away, 1-0. Grim, nervy, proper “clench for 90+7” stuff… and I LOVED it. Give me ugly wins all season. Alisson you beautiful wall. Now please, for the love of God, can we stop living like this every week??
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
