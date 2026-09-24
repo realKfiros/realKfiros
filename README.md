@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Still buzzing but also one hamstring away from crisis<br />
-**YNWA intensity:** 92%<br />
-**Take:** Bournemouth away, 1-0. Grim, nervy, proper “clench for 90+7” stuff… and I LOVED it. Give me ugly wins all season. Alisson you beautiful wall. Now please, for the love of God, can we stop living like this every week??
+**Mood:** WE’RE WINNING BUT I’M STILL SWEATING<br />
+**YNWA intensity:** 87%<br />
+**Take:** Isak bagging the winner at Bournemouth and I’m already emotionally attached like he’s been here 10 years. 1-0 away, job done, but why am I still convinced we’re one misplaced pass from chaos?? Just win. Keep moving. UP THE REDS.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
