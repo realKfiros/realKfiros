@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Scrappy 1-0 merchants and I’m LOVING IT (but my heart’s in bits)<br />
-**YNWA intensity:** 91%<br />
-**Take:** Bournemouth away, 0-1, clean sheet… inject it. Don’t care if it wasn’t pretty, it’s September and points are points. Title challenges are built on grim wins like this. Anyone moaning can go support vibes FC.
+**Mood:** Isak dependency era but I’m not complaining<br />
+**YNWA intensity:** 92%<br />
+**Take:** Another 1-0 away win at Bournemouth and it’s Isak again. Inject it. But why do we insist on turning every match into a 95-minute stress test?? I’ll take the three points but my heart rate is filing a complaint.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
