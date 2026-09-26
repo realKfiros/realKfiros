@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Isak dependency era but I’m not complaining<br />
+**Mood:** fuming but delusional<br />
 **YNWA intensity:** 92%<br />
-**Take:** Another 1-0 away win at Bournemouth and it’s Isak again. Inject it. But why do we insist on turning every match into a 95-minute stress test?? I’ll take the three points but my heart rate is filing a complaint.
+**Take:** We’re TEN TH after four games??? I’m sorry but what is this start 😭 International break can’t come quick enough. Iraola better have a mad plan because I did NOT sign up for “top 4 battle” chats in September. Sort it out, Reds.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
