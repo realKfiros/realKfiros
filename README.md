@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** fuming but delusional<br />
+**Mood:** Fuming but smug<br />
 **YNWA intensity:** 92%<br />
-**Take:** We’re TEN TH after four games??? I’m sorry but what is this start 😭 International break can’t come quick enough. Iraola better have a mad plan because I did NOT sign up for “top 4 battle” chats in September. Sort it out, Reds.
+**Take:** Palace chairman saying we “weren’t serious” with the Sarr bid?? Mate we’re Liverpool, not Bargain Hunt. If you wanted a proper fee just say that. Now I’m sat here refreshing like a gremlin. FSG PLEASE I’m tired.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
