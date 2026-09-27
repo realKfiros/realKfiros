@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Fuming but smug<br />
+**Mood:** BUZZING but suspicious<br />
 **YNWA intensity:** 92%<br />
-**Take:** Palace chairman saying we “weren’t serious” with the Sarr bid?? Mate we’re Liverpool, not Bargain Hunt. If you wanted a proper fee just say that. Now I’m sat here refreshing like a gremlin. FSG PLEASE I’m tired.
+**Take:** Isak again. Of course it’s Isak. 1-0 at Bournemouth and we’re just grinding teams into dust like it’s normal. Love it. Also hate it. My heart can’t do “one-goal cushion” FC for 50 more games. SCORE A SECOND, LADS.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
