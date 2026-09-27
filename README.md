@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** BUZZING but suspicious<br />
-**YNWA intensity:** 92%<br />
-**Take:** Isak again. Of course it’s Isak. 1-0 at Bournemouth and we’re just grinding teams into dust like it’s normal. Love it. Also hate it. My heart can’t do “one-goal cushion” FC for 50 more games. SCORE A SECOND, LADS.
+**Mood:** TENSE but delusional<br />
+**YNWA intensity:** 91%<br />
+**Take:** TENTH after four games?? I’m sorry but what is this early-season chaos. One decent run and we’re “back”, one dodgy half and it’s crisis talks. City at Anfield soon… either we wake up and bite or Twitter’s gonna be a crime scene.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
