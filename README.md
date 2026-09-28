@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** HEART IN THROAT BUT WE’LL TAKE IT<br />
-**YNWA intensity:** 92%<br />
-**Take:** Isak nicking it at Bournemouth again and suddenly I’m planning the parade BUT also why do we insist on winning 1-0 like it’s a hostage negotiation?? Clean sheet merchants, stress addicts, title charge loading… I’m shaking.
+**Mood:** Fuming but weirdly hopeful<br />
+**YNWA intensity:** 91%<br />
+**Take:** 0-0 at Anfield vs Fulham is criminal. Crossbar FC again. How do we dominate vibes and still leave with a point like it’s a charity donation?? Someone put the ball IN the net before I start learning set-piece coaching on YouTube.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
