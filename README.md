@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** TENSE but delusional<br />
-**YNWA intensity:** 91%<br />
-**Take:** TENTH after four games?? I’m sorry but what is this early-season chaos. One decent run and we’re “back”, one dodgy half and it’s crisis talks. City at Anfield soon… either we wake up and bite or Twitter’s gonna be a crime scene.
+**Mood:** HEART IN THROAT BUT WE’LL TAKE IT<br />
+**YNWA intensity:** 92%<br />
+**Take:** Isak nicking it at Bournemouth again and suddenly I’m planning the parade BUT also why do we insist on winning 1-0 like it’s a hostage negotiation?? Clean sheet merchants, stress addicts, title charge loading… I’m shaking.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
