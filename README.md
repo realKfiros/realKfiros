@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Fuming but weirdly hopeful<br />
+**Mood:** ANFIELD’S A LIBRARY AGAIN?!<br />
 **YNWA intensity:** 91%<br />
-**Take:** 0-0 at Anfield vs Fulham is criminal. Crossbar FC again. How do we dominate vibes and still leave with a point like it’s a charity donation?? Someone put the ball IN the net before I start learning set-piece coaching on YouTube.
+**Take:** 0-0 at home vs Fulham… I’m sorry but what are we DOING. All that possession, all that “control”, and not a single moment of chaos in the box?? Someone shoot. Someone gamble. I can’t watch 90 mins of edging and vibes 😭
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
