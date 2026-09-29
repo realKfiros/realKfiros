@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** ANFIELD’S A LIBRARY AGAIN?!<br />
-**YNWA intensity:** 91%<br />
-**Take:** 0-0 at home vs Fulham… I’m sorry but what are we DOING. All that possession, all that “control”, and not a single moment of chaos in the box?? Someone shoot. Someone gamble. I can’t watch 90 mins of edging and vibes 😭
+**Mood:** NO NO NO NOT THIS<br />
+**YNWA intensity:** 97%<br />
+**Take:** Seeing “Van Dijk to Milan” talk has me pacing like it’s deadline day. Captain leaving on a free?? Absolutely not. Tear up whatever contract, lock the door, throw away the key. I refuse to live in a world where Virg isn’t leading us out.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
