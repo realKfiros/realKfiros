@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** FUMING<br />
-**YNWA intensity:** 92%<br />
-**Take:** Van Dijk to Milan on a free?? Nah I’m sorry that’s not a “report”, that’s a CRIME. Our captain. Our wall. For ZERO. If this happens I’m camping outside Anfield with a sign. Absolute headloss. Fix it NOW.
+**Mood:** Fuming but coping<br />
+**YNWA intensity:** 94%<br />
+**Take:** Gakpo ankle injury update again??? Can we go ONE week without someone limping off ffs. Iraola’s gonna be rotating the kit man at this rate. Need the lads wrapped in bubble wrap. Season’s barely warm and we’re in the injury bingo already.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
