@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** NO NO NO NOT THIS<br />
-**YNWA intensity:** 97%<br />
-**Take:** Seeing “Van Dijk to Milan” talk has me pacing like it’s deadline day. Captain leaving on a free?? Absolutely not. Tear up whatever contract, lock the door, throw away the key. I refuse to live in a world where Virg isn’t leading us out.
+**Mood:** FUMING<br />
+**YNWA intensity:** 92%<br />
+**Take:** Van Dijk to Milan on a free?? Nah I’m sorry that’s not a “report”, that’s a CRIME. Our captain. Our wall. For ZERO. If this happens I’m camping outside Anfield with a sign. Absolute headloss. Fix it NOW.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
