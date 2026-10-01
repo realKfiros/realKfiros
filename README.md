@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Fuming but coping<br />
-**YNWA intensity:** 94%<br />
-**Take:** Gakpo ankle injury update again??? Can we go ONE week without someone limping off ffs. Iraola’s gonna be rotating the kit man at this rate. Need the lads wrapped in bubble wrap. Season’s barely warm and we’re in the injury bingo already.
+**Mood:** PANIC BUT PROUD<br />
+**YNWA intensity:** 91%<br />
+**Take:** Isak back from Sweden with a “minor injury” right before City at Anfield?? Of course. OF COURSE. Wrap him in bubble wrap, ban internationals, lock him in Melwood, I’m not even joking. If he misses that game I’m suing football.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
