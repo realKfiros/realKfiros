@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** PURE PANIC BUT STILL BELIEVING<br />
-**YNWA intensity:** 91%<br />
-**Take:** Isak back from internationals with a “minor injury” right before City at Anfield… of COURSE. We finally get a proper No.9 and the football gods start nibbling at his ankles. Wrap him in bubble wrap, ban Sweden, and get him ready. I’m sick!!!
+**Mood:** Screaming into a pillow<br />
+**YNWA intensity:** 92%<br />
+**Take:** Isak “minor injury” BEFORE City at Anfield??? Of course it is. Every single time we get momentum, football gods start juggling hamstrings. Need him fit, sharp, and rabid. If he’s out I’m blaming international football forever.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
