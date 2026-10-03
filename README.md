@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** PLEASE no more international break “minor injuries” I’m begging<br />
+**Mood:** WHY are we one CB injury away from “academy lads, please save us” again??<br />
 **YNWA intensity:** 91%<br />
-**Take:** Isak sent home with a “minor” injury and I’m already spiralling. Minor for who??? We finally have a striker scoring and now the football gods want a laugh. Wrap him in bubble wrap, ban all Sweden minutes, and get him back on the pitch ASAP.
+**Take:** Joe Gomez out and we’re already talking about teenage CB pairings like it’s a cute project. It’s not cute!!! It’s terrifying!!! Iraola mate I’m begging you, bubble wrap everyone and sign an adult centre-half before I combust. YNWA 😭
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
