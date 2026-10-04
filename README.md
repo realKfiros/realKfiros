@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** NOOOOO not Isak limping home from internationals ffs<br />
+**Mood:** We’re unbeaten but I’m pacing like we’re in a relegation scrap<br />
 **YNWA intensity:** 92%<br />
-**Take:** “Minor injury” my head is on Mars. Wrap the man in bubble wrap, cancel all friendlies, lock him in Kirkby with a blanket and Lucozade. We finally look like we’ve got a proper killer and the football gods start bargaining already?? Please be fine.
+**Take:** Isak scoring and nicking it 1-0 away at Bournemouth is lovely… but why does every game feel like a hostage negotiation?? 12 shots, 3 on target, ONE goal. I can’t do 38 weeks of “squeaky bum but make it art” 😭
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
