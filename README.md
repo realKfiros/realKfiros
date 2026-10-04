@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Buzzing but already panicking<br />
+**Mood:** NOOOOO not Isak limping home from internationals ffs<br />
 **YNWA intensity:** 92%<br />
-**Take:** Isak bagging the winner at Bournemouth and then limping out of internationals with a “minor injury”?? Of course. We finally get a proper 1-0 gritty away win and football immediately goes “nah mate, not for you.” Wrap him in bubble wrap. NOW.
+**Take:** “Minor injury” my head is on Mars. Wrap the man in bubble wrap, cancel all friendlies, lock him in Kirkby with a blanket and Lucozade. We finally look like we’ve got a proper killer and the football gods start bargaining already?? Please be fine.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
