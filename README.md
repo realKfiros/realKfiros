@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Fuming but delusionally hopeful<br />
+**Mood:** Panic with a side of delusion<br />
 **YNWA intensity:** 91%<br />
-**Take:** Gakpo limping off on international duty right before City away is EXACTLY the type of cursed timeline Liverpool gets. If he’s out “weeks” I’m fighting the football gods. Someone wrap the entire squad in bubble wrap and ban internationals forever.
+**Take:** Isak “minor injury” and City coming to Anfield on Oct 11… yeah ok “minor” my arse. Wrap him in bubble wrap, ban international football, and get him ready. If we’re missing him vs City I’m going to combust. THREE POINTS OR RIOT.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
