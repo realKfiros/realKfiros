@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** I’m vibrating. Pure stress. Zero calm.<br />
-**YNWA intensity:** 94%<br />
-**Take:** Isak back from international duty with a “minor injury” right before City at Anfield??? I’m SICK. “Minor” is football code for 3 weeks + a relapse. Wrap him in bubble wrap, ban Sweden, and get him on the physio bed NOW.
+**Mood:** IT’S STARTING. NOT NOW. NOT BEFORE CITY. <br />
+**YNWA intensity:** 92%<br />
+**Take:** Isak “minor injury” and City at Anfield on Oct 11?? Of course. We finally get cooking and the football gods start nibbling our ankles. Wrap him in bubble wrap, lock the training ground, and send Pep home miserable. I’m stressed.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
