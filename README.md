@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Absolutely feral, slightly nauseous<br />
-**YNWA intensity:** 94%<br />
-**Take:** Isak already bagging like he’s been here 5 years?? We’ve got Man City next and I’m acting like it’s a cup final. Keep him wrapped in bubble wrap. One dodgy hammy and I’m uninstalling football. UP THE REDS.
+**Mood:** Fuming at international breaks<br />
+**YNWA intensity:** 92%<br />
+**Take:** Gakpo comes back from internationals with an ankle knock right before City at Anfield??? Of course. Every time. Please be “precautionary” and not “out for 6 weeks” or I’m launching my TV into the Mersey.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
