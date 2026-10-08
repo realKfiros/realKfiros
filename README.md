@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** PANIC but pretending I’m calm<br />
+**Mood:** Absolutely feral, slightly nauseous<br />
 **YNWA intensity:** 94%<br />
-**Take:** Not this Jeremy Jacquet hamstring “strain” right before City. Of course. We’re collecting defenders’ hamstrings like Pokémon cards. Just be fit for Sunday, lad. ANFIELD NEEDS YOU. I’m already stress-eating like it’s April.
+**Take:** Isak already bagging like he’s been here 5 years?? We’ve got Man City next and I’m acting like it’s a cup final. Keep him wrapped in bubble wrap. One dodgy hammy and I’m uninstalling football. UP THE REDS.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
