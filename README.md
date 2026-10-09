@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Fuming at international breaks<br />
-**YNWA intensity:** 92%<br />
-**Take:** Gakpo comes back from internationals with an ankle knock right before City at Anfield??? Of course. Every time. Please be “precautionary” and not “out for 6 weeks” or I’m launching my TV into the Mersey.
+**Mood:** PANIC BUT DEFIANT<br />
+**YNWA intensity:** 91%<br />
+**Take:** Another “double injury concern” days before City at Anfield??? Of course. Classic Liverpool: the biggest fixture and suddenly half the squad is made of glass. I’m choosing delusion: everyone’s fine, we smash City, and Anfield eats them alive. YNWA.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
