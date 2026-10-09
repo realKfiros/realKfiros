@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** PANIC BUT DEFIANT<br />
-**YNWA intensity:** 91%<br />
-**Take:** Another “double injury concern” days before City at Anfield??? Of course. Classic Liverpool: the biggest fixture and suddenly half the squad is made of glass. I’m choosing delusion: everyone’s fine, we smash City, and Anfield eats them alive. YNWA.
+**Mood:** Sick to my stomach<br />
+**YNWA intensity:** 96%<br />
+**Take:** Isak AND Gakpo limping back right before City?? Of course it’s us. Every time there’s a “big one”, the injury gods start cooking. Iraola better be performing miracles in training because I am NOT watching us go blunt at the Etihad again.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
