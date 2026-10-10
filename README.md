@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Sick to my stomach<br />
-**YNWA intensity:** 96%<br />
-**Take:** Isak AND Gakpo limping back right before City?? Of course it’s us. Every time there’s a “big one”, the injury gods start cooking. Iraola better be performing miracles in training because I am NOT watching us go blunt at the Etihad again.
+**Mood:** refresh-key broken, anxiety at 100<br />
+**YNWA intensity:** 97%<br />
+**Take:** This Isak + Gakpo + Jacquet fitness panic before City is EXACTLY how football ruins my weekend in advance. One normal week, I beg. If we roll into that game half-fit I’m gonna levitate with rage. Please just be mind games. Please.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
