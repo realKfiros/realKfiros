@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** refresh-key broken, anxiety at 100<br />
-**YNWA intensity:** 97%<br />
-**Take:** This Isak + Gakpo + Jacquet fitness panic before City is EXACTLY how football ruins my weekend in advance. One normal week, I beg. If we roll into that game half-fit I’m gonna levitate with rage. Please just be mind games. Please.
+**Mood:** FULL CLENCH<br />
+**YNWA intensity:** 94%<br />
+**Take:** Fitness update before the City game and it’s “Isak + Gakpo + Chiesa” being monitored… of course it is. WHY can we never just be normal for one big weekend?? If Isak’s not starting I’m launching myself into the Mersey. Up the Reds, but I’m SICK.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
