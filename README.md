@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Sick to my stomach<br />
-**YNWA intensity:** 97%<br />
-**Take:** City next and we’ve got Isak/Gakpo injury noise swirling… perfect. Of course it’s always before THESE games. If we roll up half-fit we’re cooked. Need Anfield feral, midfield snapping, and someone tell the hamstrings to behave.
+**Mood:** Sick to my stomach but weirdly buzzing<br />
+**YNWA intensity:** 93%<br />
+**Take:** Szoboszlai injury update right before City???? Of course. This club never gets ONE calm weekend. Please be minor. I can’t do a “we’ll assess” special while Pep smirks at Anfield. Wrap Dom in bubble wrap and inject vibes.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
