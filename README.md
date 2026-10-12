@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Fuming, hollow, pacing<br />
-**YNWA intensity:** 96%<br />
-**Take:** Beaten by City at ANFIELD and now Gravenberch suspended for Brentford?? Cool cool cool. Love playing the hardest run with half a midfield and vibes. Someone hold me before I start tweeting conspiracies about fixtures and hamstrings. YNWA 😭
+**Mood:** FUMING.<br />
+**YNWA intensity:** 93%<br />
+**Take:** Liverpool 0-3 City at ANFIELD?? Nah man that’s criminal. Sick to my stomach. Heads have gone, legs have gone, vibes have gone. Someone tell me this was a fever dream. We go again but I’m staring at the ceiling all week.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
