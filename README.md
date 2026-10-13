@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** FUMING.<br />
-**YNWA intensity:** 93%<br />
-**Take:** Liverpool 0-3 City at ANFIELD?? Nah man that’s criminal. Sick to my stomach. Heads have gone, legs have gone, vibes have gone. Someone tell me this was a fever dream. We go again but I’m staring at the ceiling all week.
+**Mood:** Head’s on Mars, heart’s on the floor<br />
+**YNWA intensity:** 96%<br />
+**Take:** 0-3 at Anfield to City AFTER the Gravenberch red… I’m sick. One moment and we implode like it’s a hobby. Haaland, Doku, Cherki just strolling through. I love this club but why do we do self-sabotage speedruns vs City???
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
