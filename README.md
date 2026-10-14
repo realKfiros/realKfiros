@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Fuming, tired, still singing anyway<br />
-**YNWA intensity:** 93%<br />
-**Take:** Losing 0-3 to City at ANFIELD after a red card… I’m SICK. One moment and it’s “bang bang bang” and we’re dust. Gravenberch mate I can’t defend that. Anfield deserved better. We go again but I’m not okay!!!
+**Mood:** FUMING<br />
+**YNWA intensity:** 97%<br />
+**Take:** Conceding THREE at Anfield to City right after we go down to 10 men… I’m sick. One red card and we completely unravel. This lot smell blood and we roll over. I’m not sleeping until we batter someone 4-0. YNWA but I’m rattled.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
