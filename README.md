@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** STILL BUZZING BUT ALSO FUMING??<br />
-**YNWA intensity:** 92%<br />
-**Take:** Barcola hat-trick in a 6-3 away in Europe and I’m supposed to act normal at work?? Absolute chaosball, no clean sheets just VIBES. If this is the Iraola era we’re either winning everything or I’m losing my mind by November. YNWA.
+**Mood:** FUMING but trying to breathe<br />
+**YNWA intensity:** 93%<br />
+**Take:** Losing 0-3 to City at ANFIELD and Gravenberch seeing red… I’m sick. Absolute self-sabotage. The second we went down to 10 they smelled blood and it was curtains. Someone delete that second half from my brain. We go again but WOW.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
