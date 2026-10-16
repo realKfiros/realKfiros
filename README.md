@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** FUMING but trying to breathe<br />
-**YNWA intensity:** 93%<br />
-**Take:** Losing 0-3 to City at ANFIELD and Gravenberch seeing red… I’m sick. Absolute self-sabotage. The second we went down to 10 they smelled blood and it was curtains. Someone delete that second half from my brain. We go again but WOW.
+**Mood:** Fuming but trying to breathe<br />
+**YNWA intensity:** 92%<br />
+**Take:** Losing 0-3 at ANFIELD to City right after the red… I’m sick. One moment and it’s curtains. Stop gifting them chaos and then acting surprised when Haaland smells blood. Next game we better come out like it’s personal or what are we even doing??
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
