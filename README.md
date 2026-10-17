@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Fuming + embarrassed + “delete football”<br />
-**YNWA intensity:** 91%<br />
-**Take:** Getting smacked 3-0 by City at ANFIELD and it all unravels after a red card… I’m tired, boss. One moment of madness and suddenly it’s Haaland, Doku, Cherki doing a victory lap in our house. Someone lock the dressing room and wake us up.
+**Mood:** Fuming but delusionally alive<br />
+**YNWA intensity:** 92%<br />
+**Take:** Getting slapped 0-3 at ANFIELD after that Gravenberch red is criminal. One moment and we crumble, City smell blood, done. I’m not hearing “learning curve” — sort the discipline, sort the composure, and NEVER let Anfield go quiet like that again.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
