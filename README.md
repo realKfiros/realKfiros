@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Fuming but delusionally alive<br />
-**YNWA intensity:** 92%<br />
-**Take:** Getting slapped 0-3 at ANFIELD after that Gravenberch red is criminal. One moment and we crumble, City smell blood, done. I’m not hearing “learning curve” — sort the discipline, sort the composure, and NEVER let Anfield go quiet like that again.
+**Mood:** WE’VE BEEN THROUGH IT AND NOW WE’RE ALIVE AGAIN<br />
+**YNWA intensity:** 91%<br />
+**Take:** Beating Brentford 2-1 right after that City humiliation is peak Liverpool emotional whiplash. One week we’re “finished”, next week we’re scrapping away wins like it’s 2019. I’m stressed, I’m loud, I’m believing again. UP THE REDS.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
