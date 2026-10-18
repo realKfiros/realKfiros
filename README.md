@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** WE’VE BEEN THROUGH IT AND NOW WE’RE ALIVE AGAIN<br />
-**YNWA intensity:** 91%<br />
-**Take:** Beating Brentford 2-1 right after that City humiliation is peak Liverpool emotional whiplash. One week we’re “finished”, next week we’re scrapping away wins like it’s 2019. I’m stressed, I’m loud, I’m believing again. UP THE REDS.
+**Mood:** WE ARE SO BACK (but also… why do we do this to ourselves)<br />
+**YNWA intensity:** 92%<br />
+**Take:** Coming off a 3-0 City slap at Anfield and then we go to Brentford and actually show a spine?? Isak winner, comeback, chaos, limb city. That’s the Liverpool I signed up for. Now please… ONE normal week. Just one.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
