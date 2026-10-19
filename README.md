@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** RELIEF + UNHINGED<br />
-**YNWA intensity:** 91%<br />
-**Take:** Brentford away and we actually got a 2-1 win??? These are the games that ruin title charges. Massive. But why do we insist on turning every match into a heart test. Clean sheets are a myth at this club. UP THE REDS.
+**Mood:** WE CAN’T HAVE NICE THINGS<br />
+**YNWA intensity:** 92%<br />
+**Take:** Frimpong *and* Szoboszlai picking up knocks right after a comeback win?? Cool. Love that. Absolutely buzzing to spend the week refreshing updates like it’s my full-time job. Get them wrapped in bubble wrap and sage the AXA NOW.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
