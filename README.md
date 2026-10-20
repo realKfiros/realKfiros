@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** RELIEF WITH A SIDE OF CHAOS<br />
-**YNWA intensity:** 91%<br />
-**Take:** Isak scoring a winner to drag us back vs Brentford… my head’s gone. We concede, we wobble, then we just… decide to be Liverpool again. No normal Saturdays allowed. Build the statue, but also WHY are we like this every week??
+**Mood:** Fuming but delusionally optimistic<br />
+**YNWA intensity:** 92%<br />
+**Take:** Frimpong AND Szoboszlai out for Villarreal at Anfield??? Of course it’s us. We win 1-2 at Brentford then immediately pay the injury tax. Fine. Next man up. Anfield under the lights, we’re STILL cooking. Up the Reds.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
