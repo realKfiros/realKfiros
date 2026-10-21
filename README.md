@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Fuming but delusionally optimistic<br />
-**YNWA intensity:** 92%<br />
-**Take:** Frimpong AND Szoboszlai out for Villarreal at Anfield??? Of course it’s us. We win 1-2 at Brentford then immediately pay the injury tax. Fine. Next man up. Anfield under the lights, we’re STILL cooking. Up the Reds.
+**Mood:** FUMING but weirdly smug<br />
+**YNWA intensity:** 91%<br />
+**Take:** Starting Szobo, he breaks down AGAIN, and the manager basically admits it wasn’t healed. Congrats, we’ve speedrun our own injury crisis. Love the Brentford comeback but we’re playing Russian roulette with hamstrings. Sort it OUT.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
