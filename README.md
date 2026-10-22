@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** ELATION + cardiac arrest<br />
-**YNWA intensity:** 97%<br />
-**Take:** 4-3 vs Villarreal at Anfield… are we a football club or a horror film??? Mac Allister brace, absolute chaos, nearly bottled it late AGAIN. Love this team but I’m booking a cardiologist. European nights are BACK and they’re unhinged.
+**Mood:** FUMING but weirdly buzzing<br />
+**YNWA intensity:** 92%<br />
+**Take:** Isak scoring the winner in that Brentford comeback has me pacing like a maniac. WE’VE GOT A CLINICAL FINISHER AGAIN 😭 now please for the love of Anfield, protect him and build the whole attack around him. City loss still stings but WE MOVE.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
