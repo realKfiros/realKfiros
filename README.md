@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** FUMING but weirdly buzzing<br />
+**Mood:** STILL SHAKING<br />
 **YNWA intensity:** 92%<br />
-**Take:** Isak scoring the winner in that Brentford comeback has me pacing like a maniac. WE’VE GOT A CLINICAL FINISHER AGAIN 😭 now please for the love of Anfield, protect him and build the whole attack around him. City loss still stings but WE MOVE.
+**Take:** Coming back from 0-2 to win 4-3 at Anfield is the most Liverpool thing ever. Why do we insist on trauma first, joy later??? My heart’s filed for divorce. But the lads showed spine and the kop dragged us over the line. WE MOVE.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
