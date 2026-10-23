@@ -64,8 +64,8 @@ I am the real Kfiros, beware of fakes 😎
 
 <!-- LIVERPOOL_MODE:start -->
 **Mood:** STILL SHAKING<br />
-**YNWA intensity:** 92%<br />
-**Take:** Coming back from 0-2 to win 4-3 at Anfield is the most Liverpool thing ever. Why do we insist on trauma first, joy later??? My heart’s filed for divorce. But the lads showed spine and the kop dragged us over the line. WE MOVE.
+**YNWA intensity:** 96%<br />
+**Take:** That 4-3 vs Villarreal at Anfield… my heart’s filed a restraining order. We score four and I’m still sweating like we’re defending a 1-0 in stoppage time. Mac Allister you madman. But lads PLEASE. I beg. One normal win. Just one.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
