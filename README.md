@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** STILL SHAKING<br />
-**YNWA intensity:** 96%<br />
-**Take:** That 4-3 vs Villarreal at Anfield… my heart’s filed a restraining order. We score four and I’m still sweating like we’re defending a 1-0 in stoppage time. Mac Allister you madman. But lads PLEASE. I beg. One normal win. Just one.
+**Mood:** FUMING but smugly hopeful<br />
+**YNWA intensity:** 93%<br />
+**Take:** Szoboszlai rushed back and now he’s busted again?? Same injury?? WHY do we do this to ourselves every season. Brilliant win at Brentford then immediately tax ourselves with another setback. Protect the players, man. My head’s gone.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
