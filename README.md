@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** FUMING but smugly hopeful<br />
-**YNWA intensity:** 93%<br />
-**Take:** Szoboszlai rushed back and now he’s busted again?? Same injury?? WHY do we do this to ourselves every season. Brilliant win at Brentford then immediately tax ourselves with another setback. Protect the players, man. My head’s gone.
+**Mood:** Fuming but unsurprised<br />
+**YNWA intensity:** 92%<br />
+**Take:** So Szoboszlai’s out again after being rushed back??? Brilliant. Absolutely brilliant. We finally get a bit of rhythm then boom, “same injury”. January can’t come soon enough. Wrap everyone in bubble wrap, I’m begging.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
