@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Panicking but pretending I’m fine<br />
+**Mood:** Fuming + praying<br />
 **YNWA intensity:** 94%<br />
-**Take:** Szoboszlai hamstring scare??? Cool cool cool. Because what we needed after the City slap was losing our engine. If Dom’s out we’re basically playing chaos-ball with vibes. Wrap him in bubble wrap NOW. I’m not built for this season.
+**Take:** Szobo AND Frimpong getting injured after Brentford is pure Liverpool luck, I’m sick. Every time we build momentum the physio room opens like a nightclub. Please just be knocks. I can’t do another “few weeks” update. We need bodies NOW.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
