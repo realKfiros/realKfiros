@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** WE’RE SO BACK (but also why do we do this to ourselves)<br />
-**YNWA intensity:** 93%<br />
-**Take:** 4-3 vs Villarreal is pure Liverpool heritage. My heart’s in the dishwasher. We can score for fun AND defend like it’s optional. Brilliant chaos, disgusting chaos. I’m yelling “CONTROL A GAME” into the void. YNWA.
+**Mood:** Panicking but pretending I’m fine<br />
+**YNWA intensity:** 94%<br />
+**Take:** Szoboszlai hamstring scare??? Cool cool cool. Because what we needed after the City slap was losing our engine. If Dom’s out we’re basically playing chaos-ball with vibes. Wrap him in bubble wrap NOW. I’m not built for this season.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
