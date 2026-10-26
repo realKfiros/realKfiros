@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** fuming, pacing, clutching my head<br />
-**YNWA intensity:** 96%<br />
-**Take:** Florian Wirtz injury update? Cool cool cool. Just what we needed. Can we have ONE week where our best players aren’t held together by tape?? This season’s turning into AXA FC. Please be minor. PLEASE.
+**Mood:** FUMING but clinging on<br />
+**YNWA intensity:** 93%<br />
+**Take:** Szoboszlai hamstring noise again??? Of course. Because why would we EVER get a clean run. Absolute engine of this team and now we’re doing the “wait and see” dance. Please be minor. I’m begging. Season’s cursed if he’s out.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
