@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** FUMING but clinging on<br />
+**Mood:** Fuming. Proper fuming.<br />
 **YNWA intensity:** 93%<br />
-**Take:** Szoboszlai hamstring noise again??? Of course. Because why would we EVER get a clean run. Absolute engine of this team and now we’re doing the “wait and see” dance. Please be minor. I’m begging. Season’s cursed if he’s out.
+**Take:** Szoboszlai rushed back and it’s “the same injury” again?? Absolute self-inflicted chaos. We’re out here managing hamstrings like it’s a vibes-based spreadsheet. Protect our midfield engine man, PLEASE. I’m tired, boss.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
