@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Fuming. Proper fuming.<br />
-**YNWA intensity:** 93%<br />
-**Take:** Szoboszlai rushed back and it’s “the same injury” again?? Absolute self-inflicted chaos. We’re out here managing hamstrings like it’s a vibes-based spreadsheet. Protect our midfield engine man, PLEASE. I’m tired, boss.
+**Mood:** FUMING but smugly righteous<br />
+**YNWA intensity:** 96%<br />
+**Take:** City found guilty then stroll into Anfield and do us 3-0?? I’m sick. “Hostile atmosphere” my head—how are we the ones getting punched?? Someone two-foot their PR spin and give me a proper response next time. Cheats. Always.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
