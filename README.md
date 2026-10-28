@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** FUMING but smugly righteous<br />
+**Mood:** Fuming but cackling<br />
 **YNWA intensity:** 96%<br />
-**Take:** City found guilty then stroll into Anfield and do us 3-0?? I’m sick. “Hostile atmosphere” my head—how are we the ones getting punched?? Someone two-foot their PR spin and give me a proper response next time. Cheats. Always.
+**Take:** City “found guilty” then come to Anfield and do THAT while we’re down to 10. I’m sorry but the Premier League is a circus. “Going down” chants on repeat, head’s gone, I want points back and I want blood. YNWA.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
