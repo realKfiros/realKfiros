@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Fuming but cackling<br />
-**YNWA intensity:** 96%<br />
-**Take:** City “found guilty” then come to Anfield and do THAT while we’re down to 10. I’m sorry but the Premier League is a circus. “Going down” chants on repeat, head’s gone, I want points back and I want blood. YNWA.
+**Mood:** FUMING.<br />
+**YNWA intensity:** 97%<br />
+**Take:** So we rushed Szobo back and he pops the SAME hammy again after like 2 minutes?? This season is a injuries speedrun. Absolutely needless gamble. Wrap players in bubble wrap and let them heal ffs. We can’t keep doing this and act shocked.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
