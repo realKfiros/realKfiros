@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Nervous fuming<br />
+**Mood:** Fuming but coping (barely)<br />
 **YNWA intensity:** 92%<br />
-**Take:** Szoboszlai hamstring?? Brilliant. Absolutely love living in a constant state of “who’s our midfield today then?” If he’s out for weeks we’re gonna be playing with vibes and prayer. Wrap everyone in bubble wrap. NOW.
+**Take:** Carragher even entertaining a Trent return has melted my head. You can’t ghost the fanbase, flirt with Madrid, then stroll back in like it’s nothing. If he comes back it has to be on OUR terms. Anfield won’t be a therapy session.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
