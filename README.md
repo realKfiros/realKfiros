@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** STILL SHAKING<br />
+**Mood:** fuming but clinging to delusion<br />
 **YNWA intensity:** 92%<br />
-**Take:** Liverpool 1-1 Chelsea then WIN ON PENS and people wanna moan?? We’re alive in the cups, Anfield’s a madhouse, and our nerves are paying rent. Don’t care if it was ugly. Survive. Advance. Next. UP THE REDS.
+**Take:** That 0-3 vs City on Oct 11 still has my head gone. Gravenberch sent off, game dead, and suddenly we’re “injury-hit” like it’s a personality trait. I’m tired boss. Give me ONE normal week at this club. ONE.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
