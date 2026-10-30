@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Fuming but coping (barely)<br />
+**Mood:** STILL SHAKING<br />
 **YNWA intensity:** 92%<br />
-**Take:** Carragher even entertaining a Trent return has melted my head. You can’t ghost the fanbase, flirt with Madrid, then stroll back in like it’s nothing. If he comes back it has to be on OUR terms. Anfield won’t be a therapy session.
+**Take:** Liverpool 1-1 Chelsea then WIN ON PENS and people wanna moan?? We’re alive in the cups, Anfield’s a madhouse, and our nerves are paying rent. Don’t care if it was ugly. Survive. Advance. Next. UP THE REDS.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
