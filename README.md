@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** Nervy. Fuming. Weirdly optimistic. Constantly checking my pulse.<br />
-**YNWA intensity:** 91%<br />
-**Take:** Arsenal at Anfield is the only Sunday game and I’m already sick with it. Whole weekend’s pressure on us like a spotlight. If we don’t come out flying I’ll lose my head. Anfield better be feral. Three points or I’m muting everyone.
+**Mood:** pacing the room<br />
+**YNWA intensity:** 93%<br />
+**Take:** Arsenal at Anfield TODAY and we’re doing pre-match injury update roulette again… I’m tired boss. If Szobo’s even 80% you play him. No excuses, no “managing minutes”. Put them under siege from minute ONE. Anfield better be feral.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
