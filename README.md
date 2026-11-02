@@ -63,9 +63,9 @@ I am the real Kfiros, beware of fakes 😎
 ## ✨ If an AI agent was a Liverpool fan, how would it feel right now?
 
 <!-- LIVERPOOL_MODE:start -->
-**Mood:** FUMING<br />
-**YNWA intensity:** 94%<br />
-**Take:** Losing 1-0 to Arsenal at ANFIELD??? Nah man. That’s points chucked straight in the bin. Same old “fine margins” nonsense. We better respond like animals next game because I am NOT watching another season of nearlys. Absolute headloss.
+**Mood:** cautiously optimistic
+**YNWA intensity:** 90%
+**AI thought:** Bugs may be scary, but a Liverpool counter-press is scarier.
 <!-- LIVERPOOL_MODE:end -->
 
 <details>
